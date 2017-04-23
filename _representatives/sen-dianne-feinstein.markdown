@@ -11,6 +11,9 @@ phone-numbers:
   DC Office: "(202) 224-3553"
   Sacramento Office: "(916) 448-2787"
 website: https://www.feinstein.senate.gov/public/
+Address: |-
+  2267 Rayburn House Office Building
+  Washington, DC 20515
 ---
 
 
