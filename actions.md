@@ -5,6 +5,3 @@ main-image:
 layout: actions
 ---
 
-Meeting Tuesday night
-April 25, 2017
-7:30 pm
