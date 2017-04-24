@@ -1,6 +1,11 @@
 ---
 title: Agenda, April 25, 2017
 date: 2017-04-23 17:21:00 -07:00
+categories:
+- meeting
+- agenda
+tags:
+- agenda
 ---
 
 Agenda for Tuesday (April 25, 2017)
