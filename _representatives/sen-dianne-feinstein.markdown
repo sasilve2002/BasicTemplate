@@ -10,6 +10,9 @@ phone-numbers:
   SF Office: "(213) 894-5000"
   DC Office: "(202) 224-3553"
   Sacramento Office: "(916) 448-2787"
+  San Diego Office: "(619) 231-9712"
+  LA Office: "(310) 914-7300"
+  Fresno Office: "(559) 489-7430"
 website: https://www.feinstein.senate.gov/public/
 Address: |-
   2267 Rayburn House Office Building
