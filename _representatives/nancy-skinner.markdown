@@ -1,5 +1,5 @@
 ---
-title: Nancy Skinner
+title: Senator Nancy Skinner
 date: 2017-04-30 09:23:00 -07:00
 ---
 
