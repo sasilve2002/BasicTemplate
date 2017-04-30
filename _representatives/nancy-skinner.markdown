@@ -7,10 +7,3 @@ phone-numbers:
 website: http://sd09.senate.ca.gov/contact
 ---
 
-[Website](http://sd09.senate.ca.gov/contact)
-Oakland Office
-Phone (510) 286-1333
-Fax (510) 286-3885
-Sacramento Office
-Phone (916) 651-4009
-Fax (916) 327-1997
