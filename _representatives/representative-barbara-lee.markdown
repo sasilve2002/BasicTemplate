@@ -7,8 +7,8 @@ categories:
 tags:
 - Representative
 phone-numbers:
-  Oakland, CA: "(510) 763-0370"
-  Washington, DC: "(202) 225-2661"
+  Oakland Office: "(510) 763-0370"
+  DC Office: "(202) 225-2661"
 website: http://lee.house.gov/
 ---
 
