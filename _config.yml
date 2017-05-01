@@ -2,6 +2,9 @@
 title: Nothing Rhymes with Orange
 timezone: America/Los_Angeles
 collections:
+  contacts:
+    title: Contacts
+    output: true
   posts:
     title: Posts
     output: true
