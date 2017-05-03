@@ -1,6 +1,10 @@
 ---
 title: What is the DNC alphabet soup
 date: 2017-05-03 07:50:00 -07:00
+tags:
+- DNC
+- DCCC
+- DSCC
 ---
 
 *Excerpted from Daily Kos By David Jarman*  
