@@ -5,7 +5,7 @@ main-image:
 layout: actions
 ---
 
-Welcome to our Actions page!  We will frequently post new actions in this section of the website so please check back often.
+## **Welcome to our Actions page!  We will frequently post new actions in this section of the website so please check back often.**
 
 Actions – week of May 1, 2017
 
