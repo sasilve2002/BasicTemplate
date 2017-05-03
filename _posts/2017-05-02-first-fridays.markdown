@@ -11,5 +11,3 @@ Location: Telegraph Ave., W. Grant to 27th Street, KONO District, Oakland
 ---
 
 [The Sister District Project](https://www.sisterdistrict.com/) (we've partnered with to flip districts) is selling baked goods @ [Oakland's First Fridays](http://oaklandfirstfridays.org/about), May 5th and they would love to see any members at the Sister District table and just say hello. If anyone wants to go with me, email me.  They have baked goods!
-[Click here for First Friday's website](http://oaklandfirstfridays.org/about)
-[Click here for The Sister District Project's website](https://www.sisterdistrict.com/)
