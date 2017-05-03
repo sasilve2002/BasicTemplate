@@ -5,9 +5,9 @@ main-image:
 layout: actions
 ---
 
-## **Welcome to our Actions page!  We will frequently post new actions in this section of the website so please check back often.**
+## **Welcome to our Actions page!  Daily, we will try to post a fresh action in this section of the website so please check back every day.**
 
-Actions – week of May 1, 2017
+Action – May 3, 2017
 
 The house is trying repeal the ACA again. The modified bill** HR 1628** (Trumpcare) is more draconian than the first version – that’s why the **Freedom Caucus** - **conservative and libertarian Republican members of the United States House of Representatives** - is on board. The word at this point is the Republicans just need 2 more votes to pass it. You know all our MoCs are on board, so it is time to call outside our district.
 
