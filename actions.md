@@ -9,19 +9,19 @@ layout: actions
 
 Actions – week of May 1, 2017
 
-1st action: May Day – minimum wage
+The house is trying repeal the ACA again. The modified bill** HR 1628** (Trumpcare) is more draconian than the first version – that’s why the **Freedom Caucus** - **conservative and libertarian Republican members of the United States House of Representatives** - is on board. The word at this point is the Republicans just need 2 more votes to pass it. You know all our MoCs are on board, so it is time to call outside our district.
 
-Trumpcare, Twit's tax plan's transfer of wealth from the working class to the super rich – 2 of the many blows against American workers.
+These Republicans are still undecided on HR 1628 (Trumpcare rerun):\
+\
+McHenry, NC – (202)225-2576\
+Stefanik, NY - (202)225-4611\
+Valadado, CA - (202)225-4695\
+Yoder, KS - (202)225-2865\
+Diaz-Balart, FL - (202)225-4211\
+Frelinghuysen, NJ - (202)225-5034\
+Paulsen, MN - (202)225-.2871\
+Kinzinger, IA - (202)225-3635
 
-Call your MoCs - fight for $15
+**Call Script: VOTE NO on Trumpcare, don't strip away health care from Americans.**
 
-Script: Hi, my name is _____ and I’m a constituent calling from _____. I am calling to urge Sen./Rep. _____to support the $15 minimum wage bill that was recently introduced in Congress. Cities like Seattle that already have a $15/hour minimum wage have shown that this has not led to a loss of jobs and in fact, that consumer spending and growth have increased. Furthermore, it’s a matter of fairness to make sure that all workers can afford basic necessities, and in many places it is impossible for a minimum wage worker to earn enough for housing and food for their families. I hope that Sen./Rep. _____ will support this important legislation.
-
----
-
-1. Action - AND, JUST FOR FUN : (the lines are tied up, so I'm gonna do this tonight after hours & leave a message.)
-
-**Troll VOICE, aka Victims of Immigrant Crime Engagement**.
-
-Twit and Homeland Security rolled out a brand new hotline for people to call and report if you have been a victim of or a witness to a crime committed by “removable criminal aliens.” We are asking you to flood their line with calls about anything an alien has done to you; not just any alien though, The X-Files kind.
-The hotline number is 1-855-48-VOICE. They have already been inundated with alien crimes since their roll out last week, and we want to keep the party going. So, whether you were spying on your neighbor and saw them get impregnated by an alien, or they stole the garden gnome from your front porch for nefarious purposes, or just came in and abducted your sister during a game of Stratego, do your due diligence as a citizen of the United States and report these reprehensible crimes. Bonus points if your story has anything to do with an actual X-Files episode. Let us know if Mulder, Scully, or any other Men In Black pay you a visit. We want to believe.
+These calls are working!  Fight on!
