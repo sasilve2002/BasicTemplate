@@ -20,5 +20,5 @@ The **DLCC (Democratic Legislative Campaign Committee) is the organization tha
 Side note: Please do not confuse the DLCC with the **DLC (Democratic Leadership Council), a centrist think-tank/advocacy group** that, most importantly, no longer exists, as of 2011. 
 
 For complete article:
+[http://www.dailykos.com/story/2017/4/17/1653154/-DNC-DCCC-DSCC-How-to-decipher-the-alphabet-soup-of-Democratic-Party-organizations]
 
-DNC, DCCC, DSCC: How to decipher the alphabet soup of Democratic Party organizations
