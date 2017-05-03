@@ -1,5 +1,5 @@
 ---
-title: Take Action
+title: Don't forget the Take Action page!
 date: 2017-05-02 21:06:00 -07:00
 ---
 
