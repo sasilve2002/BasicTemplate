@@ -30,7 +30,7 @@ a pair of headphones/earbuds
 RSVP to Rachel at [Rachel.Terp@gmail.com](http://Rachel.Terp@gmail.com)
 
 **May 9**, Tuesday, 2:00pm - 4:30pm, North Berkeley BART
-RSVP to Beth at beth-gerstein@comcast.net
+RSVP to Beth at [beth-gerstein@comcast.net](http://beth-gerstein@comcast.net)
 
 **May 13**, Saturday, 9:00am - 12:30pm, North Berkeley/Albany
 RSVP to Melanie at melanie.ca13.sisterdistrict@gmail.com
