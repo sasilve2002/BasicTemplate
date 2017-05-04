@@ -48,7 +48,7 @@ RSVP to Rachel at [Rachel.Terp@gmail.com](http://Rachel.Terp@gmail.com)
 RSVP to Joy at [jdovidio@icloud.com](http://jdovidio@icloud.com)
 
 **May 23**, Tuesday, 2:00pm - 4:30pm, North Berkeley BART
-RSVP to Beth at beth-gerstein@comcast.net
+RSVP to Beth at [beth-gerstein@comcast.net](http://beth-gerstein@comcast.net)
 
 **May 23**, Tuesday, 5:00pm - 7:30pm, North Berkeley
 RSVP to Barbara at barbara.fisher2000@gmail.com
