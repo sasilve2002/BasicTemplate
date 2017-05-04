@@ -42,7 +42,7 @@ RSVP to Andrea at sdp.ca.13@gmail.com
 RSVP to Beth at beth-gerstein@comcast.net
 
 **May 20**, Saturday, 10:00am - 12:30pm, South Berkeley / Ashby BART
-RSVP to Rachel at [](http://Rachel.Terp@gmail.com)
+RSVP to Rachel at Rachel.Terp@gmail.com
 
 **May 21**, Sunday, 9:30am - 12:30pm, Duboce Triangle, San Francisco
 RSVP to Joy at [](http://jdovidio@icloud.com)
