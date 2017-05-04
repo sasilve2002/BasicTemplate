@@ -13,7 +13,7 @@ layout: actions
 
 **Phone Bank to flip Montana**:  I'm going May 9, 2-4:30 pm, N. Berkeley - going as a group is powerful - email me ( [sasilve2002@gmail.com](http://sasilve2002@gmail.com) ) if you want to go with.
 
-The Sister District Project of CA-13 and TWW Albany-Berkeley are working to support the campaign of Rob Quist, who is running in a special election to fill the open U.S. House of Representatives seat for Montana's at-large seat. Read more about Rob here: https://robquist.org 
+The Sister District Project of CA-13 and TWW Albany-Berkeley are working to support the campaign of Rob Quist, who is running in a special election to fill the open U.S. House of Representatives seat for Montana's at-large seat. Read more about Rob here: https://(http://robquist.org) 
  
 The **election is May 25th**, and early voting has already begun.  To attend any of the phone banks, RSVP to the contact given, and the host will email you the full address plus other details in advance of the party.
 
