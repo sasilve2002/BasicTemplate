@@ -50,10 +50,10 @@ RSVP to Joy at [](http://jdovidio@icloud.com)
 RSVP to Beth at [](http://beth-gerstein@comcast.net)
 
 **May 23**, Tuesday, 5:00pm - 7:30pm, North Berkeley
-RSVP to Barbara at barbara.fisher2000@gmail.com
+RSVP to Barbara at [](http://barbara.fisher2000@gmail.com)
 
 **May 24**, Wednesday, 5:00pm - 7:00pm, Albany
-RSVP to Pam at pamtellew@gmail.com
+RSVP to Pam at 
 
 **!  THESE PHONE BANKS ARE POWERFUL !**
  
