@@ -9,7 +9,7 @@ layout: actions
 
 Actions – May 4, 2017
 
-Phone Bank to flip:  I'm going May 9, 2-4:30 pm, N. Berkeley - going as a group is powerful - email me [sasilve2002@gmail.com] if you want to go with.
+Phone Bank to flip:  I'm going May 9, 2-4:30 pm, N. Berkeley - going as a group is powerful - email me ( sasilve2002@gmail.com )if you want to go with.
 
 The Sister District Project of CA-13 and TWW Albany-Berkeley are working to support the campaign of Rob Quist, who is running in a special election to fill the open U.S. House of Representatives seat for Montana's at-large seat. Read more about Rob here: https://robquist.org 
  
@@ -60,6 +60,7 @@ RSVP to Pam at pamtellew@gmail.com
 
 
 
+Protect Healthcare - Oppose Trumpcare
 
 Still time to make these calls - big vote today:
 
