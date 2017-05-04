@@ -18,8 +18,8 @@ The Sister District Project of CA-13 and TWW Albany-Berkeley are working to supp
 The **election is May 25th**, and early voting has already begun.  To attend any of the phone banks, RSVP to the contact given, and the host will email you the full address plus other details in advance of the party.
 
 **Please bring**:
-a charged cell phone 
-a laptop or tablet 
+a charged cell phone,  
+a laptop or tablet, &  
 a pair of headphones/earbuds
 **Please prepare** by watching the training video that can be found at this link:  (http://www2.democracyforamerica.com/dfadialer))
 
