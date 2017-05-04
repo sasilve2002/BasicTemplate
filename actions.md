@@ -45,7 +45,7 @@ RSVP to Beth at [beth-gerstein@comcast.net](http://beth-gerstein@comcast.net)
 RSVP to Rachel at [Rachel.Terp@gmail.com](http://Rachel.Terp@gmail.com)
 
 **May 21**, Sunday, 9:30am - 12:30pm, Duboce Triangle, San Francisco
-RSVP to Joy at jdovidio@icloud.com
+RSVP to Joy at [jdovidio@icloud.com](http://jdovidio@icloud.com)
 
 **May 23**, Tuesday, 2:00pm - 4:30pm, North Berkeley BART
 RSVP to Beth at beth-gerstein@comcast.net
