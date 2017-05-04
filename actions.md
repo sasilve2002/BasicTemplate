@@ -54,7 +54,7 @@ RSVP to Beth at [beth-gerstein@comcast.net](http://beth-gerstein@comcast.net)
 RSVP to Barbara at [barbara.fisher2000@gmail.com](http://barbara.fisher2000@gmail.com)
 
 **May 24**, Wednesday, 5:00pm - 7:00pm, Albany
-RSVP to Pam at pamtellew@gmail.com
+RSVP to Pam at [pamtellew@gmail.com](http://pamtellew@gmail.com)
 
 **!  THESE PHONE BANKS ARE POWERFUL !**
  
