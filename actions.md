@@ -39,7 +39,7 @@ RSVP to Melanie at [melanie.ca13.sisterdistrict@gmail.com](http://melanie.ca13.s
 RSVP to Andrea at [sdp.ca.13@gmail.com](http://sdp.ca.13@gmail.com)
 
 **May 16**, Tuesday, 2:00pm - 4:30pm, North Berkeley BART
-RSVP to Beth at beth-gerstein@comcast.net
+RSVP to Beth at [beth-gerstein@comcast.net](http://beth-gerstein@comcast.net)
 
 **May 20**, Saturday, 10:00am - 12:30pm, South Berkeley / Ashby BART
 RSVP to Rachel at Rachel.Terp@gmail.com
