@@ -27,13 +27,13 @@ a pair of headphones/earbuds
 **Phone banking party schedule**
 
 **May 7**, Sunday, 11:45am - 1:45pm, South Berkeley / Ashby BART
-RSVP to Rachel at [](http://Rachel.Terp@gmail.com)
+RSVP to Rachel at Rachel.Terp@gmail.com
 
 **May 9**, Tuesday, 2:00pm - 4:30pm, North Berkeley BART
-RSVP to Beth at [](http://beth-gerstein@comcast.net)
+RSVP to Beth at beth-gerstein@comcast.net
 
 **May 13**, Saturday, 9:00am - 12:30pm, North Berkeley/Albany
-RSVP to Melanie at [](http://melanie.ca13.sisterdistrict@gmail.com)
+RSVP to Melanie at melanie.ca13.sisterdistrict@gmail.com
 
 **May 13**, Saturday, 12:30pm - 3:30pm, Central Berkeley
 RSVP to Andrea at [](http://sdp.ca.13@gmail.com)
