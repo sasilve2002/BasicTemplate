@@ -22,7 +22,7 @@ a charged cell phone,
 a laptop or tablet, &  
 a pair of headphones/earbuds
 
-**Please prepare** by watching the training video that can be found at this link:  [](http://www2.democracyforamerica.com/dfadialer)
+**Please prepare** by watching the training video that can be found at this link:  []([http://www2.democracyforamerica.com/dfadialer](http://www2.democracyforamerica.com/dfadialer))
 
 **Phone banking party schedule**
 
