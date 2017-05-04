@@ -62,9 +62,9 @@ RSVP to Pam at [pamtellew@gmail.com](http://pamtellew@gmail.com)
 
 **Action #2:**
 
-**Protect Healthcare - Oppose Trumpcare
+****Protect Healthcare - Oppose Trumpcare**
 
-Still time to make these calls - big vote today:
+**Still time to make these calls** - big vote today:
 **
 The house is trying repeal the ACA again. The modified bill** HR 1628** (Trumpcare) is more draconian than the first version – that’s why the **Freedom Caucus** - **conservative and libertarian Republican members of the United States House of Representatives** - is on board. The word at this point is the Republicans just need 2 more votes to pass it. You know all our MoCs are on board, so it is time to call outside our district.
 
