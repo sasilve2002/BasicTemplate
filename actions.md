@@ -67,7 +67,7 @@ Still time to make these calls - big vote today:
 **
 The house is trying repeal the ACA again. The modified bill** HR 1628** (Trumpcare) is more draconian than the first version – that’s why the **Freedom Caucus** - **conservative and libertarian Republican members of the United States House of Representatives** - is on board. The word at this point is the Republicans just need 2 more votes to pass it. You know all our MoCs are on board, so it is time to call outside our district.
 
-These Republicans are still undecided on HR 1628 (Trumpcare rerun):
+**These Republicans are still undecided on HR 1628 (Trumpcare rerun)**:
 
 McHenry, NC – (202)225-2576
 
