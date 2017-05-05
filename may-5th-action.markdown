@@ -20,12 +20,14 @@ Script:  Yesterday, Republicans got TrumpCare passed in the House by making it m
 
 **Senator Dianne Feinstein**
 
+
 **415-393-0707**
 **619-231-9712**
 **310-914-7300**
 **559-485-7430**
 
 **Senator Kamila Harris**
+
 
 **202-224-3553**
 **916-448-2787**
