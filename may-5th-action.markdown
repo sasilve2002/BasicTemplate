@@ -26,7 +26,7 @@ Script:  Yesterday, Republicans got TrumpCare passed in the House by making it m
 **310-914-7300,**
 **559-485-7430**
 
-**Senator Kamila Harris**
+**Senator Kamala Harris**
 
 
 **202-224-3553,**
