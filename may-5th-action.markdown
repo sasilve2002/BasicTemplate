@@ -34,7 +34,7 @@ Script:  Yesterday, Republicans got TrumpCare passed in the House by making it m
 **415-355-9041**
 **619-239-3884**
 
-**These calls work** (in spite of the **non**"Freedom Caucus" continuing to contribut millions of $$$ to fight ACA).  
+**These calls work** (in spite of the **non"Freedom** Caucus" continuing to contribut millions of $$$ to fight ACA).  
 
 We have a real chance to protect healthcare.  
 
