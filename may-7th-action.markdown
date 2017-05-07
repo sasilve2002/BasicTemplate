@@ -9,6 +9,4 @@ A.B. 3 will be taken up in Assembly Appropriations on May 17th. Find your commit
 
 S.B. 6 is currently awaiting referral to the Assembly Judisciary committee [](Assembly Judiciary Committee 1020 N Street, Room 104 Sacramento, CA 95814).   
 
-Send the letters to your California Assemblymember - find your rep: [](http://findyourrep.legislature.ca.gov/)
-
  Here are sample scripts:
