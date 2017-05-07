@@ -31,6 +31,9 @@ Thank you.
 Sincerely,
 ---------------------------------
 
+Re: Support of A.B. 6 The Due Process For All Act
+Dear Members of the Assembly Judiciary Committee:
+I am a California constituent and writing in support of A.B. 6.  A.B. 6 gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) 
 
 
   
