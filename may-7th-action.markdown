@@ -50,12 +50,10 @@ Dear Assemblymember __________:
 
 I am a California constituent writing to you in favor of S.B. 54.
 S.B. 54 ensures that no state or local resources are diverted to fuel any attempt by the federal government to carry out mass deportations and that our schools, our hospitals, and our courthouses are safe spaces for everyone in our community. (insert your personal story/opinion etc.) Now is the time for California to stand up to attempts by Trump and his new administration to institute draconian, punitive, and discriminatory immigration policies. Please vote yes on S.B. 54.
+
 Thank you.
+
 Sincerely,
-
-------------------------------------
-
----------------------------------
 
 
 
