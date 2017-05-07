@@ -31,8 +31,10 @@ Sincerely,
 
 ------------------------------------------------------
 
-Assembly Judiciary Committee 
+Assembly Judiciary Committee
+ 
 1020 N Street, Room 104 
+
 Sacramento, CA 95814
 
 Re: Support of A.B. 6 The Due Process For All Act
