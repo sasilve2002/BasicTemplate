@@ -3,14 +3,16 @@ title: May 7th Action
 date: 2017-05-06 14:52:00 -07:00
 ---
 
-Write letters in favor of the 3 immigration bills we've been supporting:  A.B. 3 - Stronger Public Defenders Act [](https://www.aclunc.org/our-work/legislation/strengthening-public-defenders-act-ab-3); SB 6 - Due Process For All Act [](https://www.aclusocal.org/en/legislation/due-process-all-act); and SB 54 - The California Values Act [](https://www.aclunc.org/our-work/legislation/california-values-act-sb-54). 
+Write letters in favor of the 3 immigration bills we've been supporting:  
+A.B. 3 - Stronger Public Defenders Act [](https://www.aclunc.org/our-work/legislation/strengthening-public-defenders-act-ab-3) A.B. 3 will be taken up in Assembly Appropriations on May 17th. ; 
+SB 6 - Due Process For All Act [](https://www.aclusocal.org/en/legislation/due-process-all-act) S.B. 6 is currently awaiting referral to the Assembly Judiciary committee; and 
+SB 54 - The California Values Act [](https://www.aclunc.org/our-work/legislation/california-values-act-sb-54) S.B. 54 is not yet in the Assembly. Write to your assemblymember - find him/her here : [](http://findyourrep.legislature.ca.gov/).
 
-A.B. 3 will be taken up in Assembly Appropriations on May 17th. Write to the Assembly Appropriations Committee here : [](Assembly Appropriations Committee State Capitol, Room 2114 Sacramento, California 95814)
 
-S.B. 6 is currently awaiting referral to the Assembly Judiciary committee.  Write to the Assembly Judiciary Committee here : [](Assembly Judiciary Committee 1020 N Street, Room 104 Sacramento, CA 95814).
 
-S.B. 54 is not yet in the Assembly. Write to your assemblymember -
- find him/her here : [](http://findyourrep.legislature.ca.gov/).  
+
+
+
 
 Here are sample scripts :
 
@@ -34,8 +36,12 @@ AB 3 provides our public defenders with the necessary resources and training to 
 Thank you.
 Sincerely,
 ---------------------------------
+Assembly Judiciary Committee 
+1020 N Street, Room 104 
+Sacramento, CA 95814
 
 Re: Support of A.B. 6 The Due Process For All Act
+
 Dear Members of the Assembly Judiciary Committee:
 I am a California constituent and writing in support of A.B. 6.  A.B. 6 gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) By providing counsel in deportation proceedings, California will help keep families together and secure, employees working, and communities whole.
 
