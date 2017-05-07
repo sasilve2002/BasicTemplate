@@ -26,7 +26,11 @@ Sincerely,
 Re:  Support of A.B. 3 the Strong Public Defenders Act
 Dear Members of the Assembly Appropriations Committee:
 I am a California constintuent writing in support of A.B. 3.  
-AB 3 provides our public defenders with the necessary resources and training to adequately advise their clients about any possible immigration consequences in their cases. (insert your own story/opinion here ) If passed, California would take a significant step toward helping prevent avoidable deportations.
+AB 3 provides our public defenders with the necessary resources and training to adequately advise their clients about any possible immigration consequences in their cases. (insert your own story/opinion here ) If passed, California would take a significant step toward helping prevent avoidable deportations.  Please vote yes for A.B. 3.
+Thank you.
+Sincerely,
+---------------------------------
+
 
 
   
