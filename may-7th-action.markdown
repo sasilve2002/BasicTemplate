@@ -3,7 +3,7 @@ title: May 7th Action
 date: 2017-05-06 14:52:00 -07:00
 ---
 
-Write letters in favor of the 3 immigration bills we've been supporting:  
+Write letters in favor of the 3 immigration bills we've been supporting (Put the name of the bill on the front of the envelope):  
 
 A.B. 3 - Stronger Public Defenders Act [](https://www.aclunc.org/our-work/legislation/strengthening-public-defenders-act-ab-3) A.B. 3 will be taken up in Assembly Appropriations on May 17th. ; 
 
