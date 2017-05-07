@@ -22,8 +22,12 @@ Thank you.
 Sincerely,
 
 ------------------------------------
+Assembly Appropriations Committee 
+State Capitol, Room 2114 
+Sacramento, California 95814
 
 Re:  Support of A.B. 3 the Strong Public Defenders Act
+
 Dear Members of the Assembly Appropriations Committee:
 I am a California constintuent writing in support of A.B. 3.  
 AB 3 provides our public defenders with the necessary resources and training to adequately advise their clients about any possible immigration consequences in their cases. (insert your own story/opinion here ) If passed, California would take a significant step toward helping prevent avoidable deportations.  Please vote yes for A.B. 3.
@@ -33,7 +37,7 @@ Sincerely,
 
 Re: Support of A.B. 6 The Due Process For All Act
 Dear Members of the Assembly Judiciary Committee:
-I am a California constituent and writing in support of A.B. 6.  A.B. 6 gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) 
+I am a California constituent and writing in support of A.B. 6.  A.B. 6 gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) By providing counsel in deportation proceedings, California will help keep families together and secure, employees working, and communities whole.
 
 
   
