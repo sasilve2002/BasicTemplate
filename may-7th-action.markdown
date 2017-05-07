@@ -24,7 +24,7 @@ Sincerely,
 ------------------------------------
 
 Re:  Support of A.B. 3 the Strong Public Defenders Act
-Dear Members of the Assembly Appropriations Committee,
+Dear Members of the Assembly Appropriations Committee:
 
 
   
