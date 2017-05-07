@@ -13,8 +13,10 @@ Write letters in favor of the 3 immigration bills we've been supporting (*Put th
 
 Here are **sample scripts** :
 
-Assembly Appropriations Committee 
-State Capitol, Room 2114 
+Assembly Appropriations Committee
+ 
+State Capitol, Room 2114
+ 
 Sacramento, California 95814
 
 Re:  Support of A.B. 3 the Strong Public Defenders Act
