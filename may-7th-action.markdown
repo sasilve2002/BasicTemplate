@@ -7,7 +7,7 @@ Write letters in favor of the 3 immigration bills we've been supporting:  A.B. 3
 
 A.B. 3 will be taken up in Assembly Appropriations on May 17th. Write to the Assembly Appropriations Committee here : [](Assembly Appropriations Committee State Capitol, Room 2114 Sacramento, California 95814)
 
-S.B. 6 is currently awaiting referral to the Assembly Judisciary committee [](Assembly Judiciary Committee 1020 N Street, Room 104 Sacramento, CA 95814).
+S.B. 6 is currently awaiting referral to the Assembly Judiciary committee.  Write to the Assembly Judiciary Committee here : [](Assembly Judiciary Committee 1020 N Street, Room 104 Sacramento, CA 95814).
 
 S.B. 54 is not yet in the Assembly. Write to your assemblymember [](http://findyourrep.legislature.ca.gov/).  
 
