@@ -64,6 +64,6 @@ Sincerely,
 
 --------------------------------------
 
-***These letters are important - California is the Beacon!***
+***These letters are important - California continues to be the Beacon of Hope for the rest of the country.***
   
 
