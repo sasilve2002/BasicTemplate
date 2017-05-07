@@ -41,7 +41,7 @@ Re: Support of A.B. 6 The Due Process For All Act
 
 Dear Members of the Assembly Judiciary Committee:
 
-I am a California constituent and writing in support of A.B. 6.  A.B. 6 gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) By providing counsel in deportation proceedings, California will help keep families together and secure, employees working, and communities whole.  Please vote yes for A.B. 6.
+I am a California constituent and writing in support of A.B. 6.  The Due Process For All Act gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) By providing counsel in deportation proceedings, California will help keep families together and secure, employees working, and communities whole.  Please vote yes for A.B. 6.
 
 Thank you.
 
