@@ -9,7 +9,7 @@ Write letters in favor of the 3 immigration bills we've been supporting (*Put th
 
 **SB 6 - Due Process For All Act** [](https://www.aclusocal.org/en/legislation/due-process-all-act) S.B. 6 is currently awaiting referral to the Assembly Judiciary committee; and 
 
-**SB 54 - The California Values Act** [](https:www.aclunc.org/our-work/legislation/california-values-act-sb-54) S.B. 54 is not yet in the Assembly. Write to your assemblymember - find him/her here : [](http://findyourrep.legislature.ca.gov/).
+**SB 54 - The California Values Act** [](https://www.aclunc.org/our-work/legislation/california-values-act-sb-54) S.B. 54 is not yet in the Assembly. Write to your assemblymember - find him/her here : [](http://findyourrep.legislature.ca.gov/).
 
 Here are **sample scripts** :
 
