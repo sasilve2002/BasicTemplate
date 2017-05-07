@@ -21,5 +21,11 @@ S.B. 54 ensures that no state or local resources are diverted to fuel any attemp
 Thank you.
 Sincerely,
 
+------------------------------------
+
+Re:  Support of A.B. 3 the Strong Public Defenders Act
+Dear Members of the Assembly Appropriations Committee,
+
+
   
 
