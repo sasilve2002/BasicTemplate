@@ -59,6 +59,6 @@ Thank you.
 Sincerely,
 
 
-
+These letters are important - California is the Beacon!
   
 
