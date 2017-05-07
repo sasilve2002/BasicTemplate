@@ -50,11 +50,7 @@ Sincerely,
 
 ---------------------------------------------
 The Honorable (your assemblymember)
-
-(Your assemblymember's address: [](http://findyourrep.legislature.ca.gov)
-
-
-  [](http://findyourrep.legislature.ca.gov/) findyourrep.legislature.ca.gov
+(http://findyourrep.legislature.ca.gov)
 
 Re: Support for S.B. 54 The California Values Act
 
