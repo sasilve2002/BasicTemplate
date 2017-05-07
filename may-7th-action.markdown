@@ -25,6 +25,24 @@ AB 3 provides our public defenders with the necessary resources and training to 
 Thank you.
 Sincerely,
 
+------------------------------------------------------
+
+Assembly Judiciary Committee 
+1020 N Street, Room 104 
+Sacramento, CA 95814
+
+Re: Support of A.B. 6 The Due Process For All Act
+
+Dear Members of the Assembly Judiciary Committee:
+
+I am a California constituent and writing in support of A.B. 6.  A.B. 6 gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) By providing counsel in deportation proceedings, California will help keep families together and secure, employees working, and communities whole.
+
+Thank you.
+
+Sincerely,
+
+---------------------------------------------
+
 Re: Support for S.B. 54 The California Values Act
 Dear Assemblymember __________:
 I am a California constituent writing to you in favor of S.B. 54.
@@ -35,14 +53,7 @@ Sincerely,
 ------------------------------------
 
 ---------------------------------
-Assembly Judiciary Committee 
-1020 N Street, Room 104 
-Sacramento, CA 95814
 
-Re: Support of A.B. 6 The Due Process For All Act
-
-Dear Members of the Assembly Judiciary Committee:
-I am a California constituent and writing in support of A.B. 6.  A.B. 6 gives immigrants facing deportation a shot at a fair immigration court hearing by ensuring they have qualified immigration attorneys to represent them. (insert your own story/opinion here ) By providing counsel in deportation proceedings, California will help keep families together and secure, employees working, and communities whole.
 
 
   
