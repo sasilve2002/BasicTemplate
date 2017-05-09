@@ -7,6 +7,6 @@ date: 2017-05-09 08:37:00 -07:00
 
 https://go.ourrevolution.com/page/content/tpphonebank
 
-[](https://go.ourrevolution.com/page/content/tpphonebank)
+[[](https://go.ourrevolution.com/page/content/tpphonebank)]([](https://go.ourrevolution.com/page/content/tpphonebank))
 
 Let's continue to turn Virginia **blue** - we're going to need this big time for the upcoming midterms.
