@@ -5,7 +5,7 @@ date: 2017-05-10 05:46:00 -07:00
 
 More work on our **sanctuary** status:
 
-We'll be Making three phone calls, one each to Harris & to Feinstein, and one to the Senate Judiciary Committee:
+We'll be making three phone calls, one each to Harris & to Feinstein, and one to the Senate Judiciary Committee:
 
 **Background**:
 
