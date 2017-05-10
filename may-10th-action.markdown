@@ -15,7 +15,7 @@ Let’s call our Senators and the Judiciary Committee to tell them we support th
 
 **Senator Harris:  (202) 224-3553**
 
-**Harris & Feinstein Script**:
+***Harris & Feinstein Script***:
 
 Hi, my name is _________ and I am a California constituent, calling to thank Senators Feinstein and Harris for S. 1034 A bill to improve agricultural job opportunities, benefits, and security for aliens in the United States, and for other purposes.  I support your efforts to protect and improve agricultural jobs in California.  Thank you.
 Sincerely,
