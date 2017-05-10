@@ -8,7 +8,7 @@ tags:
 - Senator
 phone-numbers:
   SF Office: "(213) 894-5000"
-  DC Office: "(202) 224-3553"
+  DC Office: "(202) 224-3841"
   Sacramento Office: "(916) 448-2787"
   San Diego Office: "(619) 231-9712"
   LA Office: "(310) 914-7300"
