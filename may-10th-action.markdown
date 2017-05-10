@@ -3,6 +3,8 @@ title: May 10th Action
 date: 2017-05-10 05:46:00 -07:00
 ---
 
+More work on our **sanctuary** status:
+
 We'll be Making three phone calls, one each to Harris & to Feinstein, and one to the Senate Judiciary Committee:
 
 **Background**:
@@ -26,6 +28,8 @@ Senate Judiciary Committee #: **202-224-5225**
 
 Hi, my name is _________ and I'm calling in support of S. 1034 A bill to improve agricultural job opportunities, benefits, and security for aliens in the United States, and for other purposes.  
 Thank you.
+
+
 
 
 
