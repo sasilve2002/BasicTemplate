@@ -8,6 +8,7 @@ More work on our **sanctuary** status:
 We'll be Making three phone calls, one each to Harris & to Feinstein, and one to the Senate Judiciary Committee:
 
 **Background**:
+
 Senators **Kamala Harris** and **Dianne Feinstein** have introduced legislation, which would help agricultural workers gain citizenship: **S.1034** – ***A bill to improve agricultural job opportunities, benefits, and security for aliens in the United States, and for other purposes***.  [http://lat.ms/2pJDtKj](http://lat.ms/2pJDtKj)  The bill is currently in the **Senate Judiciary Committee** [https://www.judiciary.senate.gov/about/members](https://www.judiciary.senate.gov/about/members), and it only has four cosponsors. 
 
 **Action**:
