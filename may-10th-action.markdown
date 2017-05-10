@@ -11,9 +11,9 @@ Senators **Kamala Harris** and **Dianne Feinstein** have introduced legislation,
 **Action**:
 Let’s call our Senators and the Judiciary Committee to tell them we support this legislation. 
 
-**Senator Feinstein: (202) 224-3841
+****Senator Feinstein: (202) 224-3841**
 
-Senator Harris:  (202) 224-3553**
+**Senator Harris:  (202) 224-3553****
 
 **Harris & Feinstein Script**:
 
