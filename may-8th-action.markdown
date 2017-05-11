@@ -17,4 +17,6 @@ https://go.ourrevolution.com/page/content/tpphonebank
 
 [](https://go.ourrevolution.com/page/content/tpphonebank)
 
+They'll give you all the directions.
+
 Let's continue to turn Virginia **blue** - we're going to need this big time for the upcoming midterms.
