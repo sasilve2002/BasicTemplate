@@ -68,8 +68,9 @@ twitter_username:
 facebook_username: sister district project ca-13
 background-image: "/uploads/CC%20signs%20in%20window.jpg"
 member-count: 24
-footer-title: The best way to support our democracy is to participate.  We can do
-  this together.   Welcome !
+footer-title: The best way to support our democracy is to participate.  Join us to
+  help flip districts and to  support California's sanctuary status.  We can do this
+  together.   Welcome !
 markdown: kramdown
 gems:
 - jekyll-feed
