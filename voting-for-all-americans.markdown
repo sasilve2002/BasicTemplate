@@ -7,7 +7,7 @@ We believe in a **vote for every American**.
 
 **Action**: Oppose the new, federal Advisory Commission on Election Integrity. 
 
-**Read**: This recent article on Kris Kobach’s past efforts to suppress voters in Kansas: [](https://www.nytimes.com/2017/05/11/us/politics/trump-voter-fraud.html?_r=1)
+**Read**: This recent article on Kris Kobach’s past efforts to suppress voters in Kansas: [[](https://www.nytimes.com/2017/05/11/us/politics/trump-voter-fraud](http://www.nytimes.com/2017/05/11/us/politics/trump-voter-fraud.html?_r=1).html?_r=1)
 
 **Call**: Your 3 MoCs (see below for contact #s).
 
