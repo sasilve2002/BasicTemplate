@@ -3,7 +3,7 @@ title: Voting for All Americans
 date: 2017-05-14 16:37:00 -07:00
 ---
 
-I believe in a **vote for every American**.
+We believe in a **vote for every American**.
 
 **Action**: Oppose the new, federal Advisory Commission on Election Integrity. 
 **Read**: This recent article on Kris Kobach’s past efforts to suppress voters in Kansas: [](https://www.nytimes.com/2017/05/11/us/politics/trump-voter-fraud.html?_r=1)
