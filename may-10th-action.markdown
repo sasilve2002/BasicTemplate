@@ -3,7 +3,7 @@ title: Sanctuary for Ag Workers
 date: 2017-05-10 05:46:00 -07:00
 ---
 
-More action on our **sanctuary** status:
+If you haven't yet, please do the following **action** to support our **sanctuary** status:
 
 We'll be making three phone calls, one each to Harris & to Feinstein, and one to the Senate Judiciary Committee:
 
