@@ -20,7 +20,7 @@ Let’s call our Senators to tell them we support this legislation.
 
 ***Harris & Feinstein Script***:
 
-Hi, my name is _________ and I am a California constituent, my zipcode is ________ .  I am calling to thank Senator (Feinstein) (Harris) for S. 1034 A bill to improve agricultural job opportunities, benefits, and security for aliens in the United States, and for other purposes.  I support your efforts to protect and improve agricultural jobs in California.  Thank you.
+Hi, my name is _________ and I am a California constituent, my zipcode is ________ .  I am calling to thank Senator (Feinstein) (Harris) for **S. 1034** A bill to improve agricultural job opportunities, benefits, and security for aliens in the United States, and for other purposes.  I support your efforts to protect and improve agricultural jobs in California.  Thank you.
 
 **Action #2**:  Next, call the committee:
 
@@ -28,7 +28,7 @@ Senate Judiciary Committee #: **202-224-5225**
 
 ***Senate Judiciary Committee script:***
 
-Hi, my name is _________ and I'm calling in support of S. 1034 A bill to improve agricultural job opportunities, benefits, and security for aliens in the United States, and for other purposes.  
+Hi, my name is _________ and I'm calling in support of **S. 1034** A bill to improve agricultural job opportunities, benefits, and security for aliens in the United States, and for other purposes.  
 Thank you.
 
 ## Awesome job, Nothing Rhymes with Orange immigration warriors !
