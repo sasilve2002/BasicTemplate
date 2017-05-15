@@ -7,6 +7,6 @@ Twit & Russia:
 
 http://[www.politico.com/story/2017/05/10/comey-firing-trump-russia-238192](http://www.politico.com/story/2017/05/10/comey-firing-trump-russia-238192) 
  
-Contact the Dept. of Justice to request a bipartisan, independent investigation:
+Contact the Dept. of Justice to request a bipartisan, independent investigation {copy & paste, sorry!}
 
-[](http://www.justice.gov/doj/webform/your-message-department-justice)
+http://[](http://www.justice.gov/doj/webform/your-message-department-justice)
