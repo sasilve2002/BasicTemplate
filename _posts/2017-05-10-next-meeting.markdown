@@ -3,7 +3,7 @@ title: Next Meeting
 date: 2017-05-10 19:57:00 -07:00
 ---
 
-Tuesday, May 23rd, 7:30 pm
+Tuesday, **May 23rd**, 7:30 pm
 
 Susan Silverman
 
