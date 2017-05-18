@@ -8,5 +8,5 @@ Want to know how your representatives are doing?  Here, from the folks at Courag
 
 copy & paste to your browser :
 
-http://www.couragescore.org/
-[](http://www.couragescore.org/)
+[http://www.couragescore.org/](http://www.couragescore.org/)
+
