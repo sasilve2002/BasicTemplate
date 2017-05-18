@@ -1,7 +1,7 @@
 ---
 title: Sanctuary for Ag Workers
 date: 2017-05-10 05:46:00 -07:00
-position: 1
+position: 0
 ---
 
 If you haven't yet, please do the following **action** to support our **sanctuary** status:
