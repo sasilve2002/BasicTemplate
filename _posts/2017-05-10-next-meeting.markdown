@@ -10,3 +10,16 @@ Susan Silverman
 510-338-0831
 
 sasilve2002@gmail.com
+
+**Agenda**:  
+
+**1**. Bring your favorite writing implements - we'll be sending postcards and letters in support of some of May's Actions - I have postcards & stamps, but if you have blank postcards, please bring them :)
+
+**2**. We'll sign up for various resistance sites.
+
+**3**. Upcoming marches & events
+
+Please feel free to **bring friends, family, neighbors** to our meetings - each new contact is a success for resisting the Twitter Twit.
+
+
+
