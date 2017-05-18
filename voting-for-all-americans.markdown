@@ -1,6 +1,7 @@
 ---
 title: Voting for All Americans
 date: 2017-05-14 16:37:00 -07:00
+position: 4
 ---
 
 We believe in a **vote for every American**.

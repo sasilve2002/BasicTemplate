@@ -1,6 +1,7 @@
 ---
 title: May 17th Action - Twit & TV
 date: 2017-05-16 18:50:00 -07:00
+position: 5
 ---
 
 From the folks at Freepress, fight Twitter Twit's attempt to an ultra-conservative TV merger that would reach 70% of households:
