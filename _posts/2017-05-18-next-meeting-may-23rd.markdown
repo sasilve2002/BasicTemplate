@@ -21,7 +21,7 @@ sasilve2002@gmail.com
 
 **3**. Upcoming marches & events
 
-Please feel free to **bring friends, family, neighbors** to our meetings - each new contact is a success for resisting the Twitter Twit.  It's time to protect our democracy in spite of Twit's distractions.
+Please feel free to **bring friends, family, neighbors** to our meetings - each new contact is a success for resisting the Twitter Twit.  You are protecting our democracy in spite of Twit's insane distractions.
 
 
 
