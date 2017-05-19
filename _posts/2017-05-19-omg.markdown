@@ -1,7 +1,6 @@
 ---
 title: OMG!!
 date: 2017-05-19 10:36:00 -07:00
-published: false
 ---
 
 
@@ -10,3 +9,5 @@ published: false
 [omg.txt](/uploads/omg.txt)
 
 OMG gotta read this!!!!
+
+This is really cool
