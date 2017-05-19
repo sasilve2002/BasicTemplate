@@ -25,7 +25,9 @@ I have stamps and USPS postcards, but if you have blank postcards, please bring 
 
 **3**. Upcoming marches & events
 
-Please feel free to **bring friends, family, neighbors** to our meetings - each new contact is a success for resisting the Twitter Twit.  You are protecting our democracy in spite of **Twit's insane distractions**.
+Please feel free to **bring friends, family, neighbors** to our meetings - each new contact is a success for resisting the Twitter Twit.  
+
+You are **protecting our democracy** in spite of **Twit's insane distractions**.
 
 
 
