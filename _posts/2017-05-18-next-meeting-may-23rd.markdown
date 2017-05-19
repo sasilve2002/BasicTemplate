@@ -13,9 +13,13 @@ Susan Silverman
 
 sasilve2002@gmail.com
 
-**Agenda**:  
+**Agenda** (updated):  
 
-**1**. Bring your favorite writing implements - I have 50 addresses to write to South Carolina :  The election is SC-05 where Archie Parnell just won the Democratic primary.  The seat was vacated when Mick Mulvaney (R) was confirmed as director of the US Office of Management and Budget.  The Republican primary was May 17th.  So, we'll be writing to remind blue South Caroliners to vote in this special election.  
+**1**. Bring your favorite writing implements - I have 50 addresses to write to **South Carolina** :  
+
+The election is **SC-05** where **[Archie Parnell** just won the **Democratic primary](https://ballotpedia.org/Archie_Parnell)** https://ballotpedia.org/Archie_Parnell.  The seat was vacated when Mick Mulvaney (R) was confirmed as director of the US Office of Management and Budget.  The general election on June 20, 2017, so we'll be writing to remind **blue South Caroliners** to vote.
+
+I have stamps and USPS postcards, but if you have blank postcards, please bring them :)
 
 **2**. We'll sign up for various resistance sites.
 
