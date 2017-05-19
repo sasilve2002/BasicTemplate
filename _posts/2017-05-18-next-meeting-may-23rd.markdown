@@ -19,7 +19,7 @@ sasilve2002@gmail.com
 
 The election is **SC-05** [Archie Parnell won the Democratic primary](https://ballotpedia.org/Archie_Parnell).  The seat was vacated when Mick Mulvaney (R) was confirmed as director of the US Office of Management and Budget.  The general election is on June 20, 2017, and we'll be writing to remind **blue South Caroliners** to vote.
 
-I have stamps and USPS postcards, but if you have blank postcards, please bring them. We'll have a "tip" jar to cover expenses :)
+I have stamps and USPS postcards, but if you have blank postcards, please bring them.  We'll have a "tip" jar to cover expenses :)
 
 **2**. We'll sign up for various resistance sites.
 
