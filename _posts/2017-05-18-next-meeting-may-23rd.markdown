@@ -15,6 +15,8 @@ sasilve2002@gmail.com
 
 **Agenda** (updated):  
 
+[Special Visitor: Myisha from Sidewalk Talk ](http://www.sidewalktalksf.com/) 
+
 **1**. Bring your favorite writing implements - I have 50 addresses to write to **South Carolina** :  
 
 The general election is **SC-05** - June 20, 2017 - [Archie Parnell won the Democratic primary](https://ballotpedia.org/Archie_Parnell).  The seat was vacated when Mick Mulvaney (R) was confirmed as director of the US Office of Management and Budget.  We'll be writing to remind **blue South Caroliners** to vote.
