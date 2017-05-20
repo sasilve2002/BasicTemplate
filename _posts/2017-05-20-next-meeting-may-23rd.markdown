@@ -1,6 +1,8 @@
 ---
 title: Next Meeting - May 23rd
-date: 2017-05-18 08:02:00 -07:00
+date: 2017-05-20 08:02:00 -07:00
+tags:
+- agenda
 ---
 
 **Next Meeting**:
