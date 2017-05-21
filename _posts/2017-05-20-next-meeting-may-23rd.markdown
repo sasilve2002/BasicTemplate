@@ -7,11 +7,11 @@ tags:
 
 **Next Meeting**:
 
-Tuesday, **May 23rd**, 7:30 pm
+Tuesday, **May 23rd**, 7:30 pm,
 
-Susan Silverman
+Susan Silverman,
 
-510-338-0831
+510-338-0831,
 
 sasilve2002@gmail.com
 
