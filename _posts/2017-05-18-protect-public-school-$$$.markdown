@@ -1,6 +1,7 @@
 ---
 title: Protect Public School $$$
 date: 2017-05-18 06:51:00 -07:00
+published: false
 ---
 
 This morning from the **NEA**:
