@@ -9,7 +9,8 @@ date: 2017-05-22 15:47:00 -07:00
 ](http://www.takeastance.us/)
 https://dailyaction.org/book-club/ : book club with dialogues with authors
 
-http://whatdoidoabouttrump.com/ : resource hub
+
+[http://whatdoidoabouttrump.com/ : resource hub](http://whatdoidoabouttrump.com/)
 
 https://5calls.org/ : auto connects to MoC's with issues & scripts
 
