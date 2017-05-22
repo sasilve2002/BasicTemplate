@@ -5,11 +5,11 @@ date: 2017-05-22 15:47:00 -07:00
 
 **Resistance Sites**
 
-[http://www.takeastance.us/ : records your message to your MoC
+[**http://www.takeastance.us/** : records your message to your MoC
 ](http://www.takeastance.us/)
 
 
-[https://dailyaction.org/book-club/ : book club with dialogues with authors](https://dailyaction.org/book-club/)
+[**https://dailyaction.org/book-club/** : book club with dialogues with authors](https://dailyaction.org/book-club/)
 
 
 [http://whatdoidoabouttrump.com/ : resource hub](http://whatdoidoabouttrump.com/)
