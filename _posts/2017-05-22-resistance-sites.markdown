@@ -23,5 +23,7 @@ date: 2017-05-22 15:47:00 -07:00
 
 [https://grabyourwallet.org/ : companies to boycott
 ](https://grabyourwallet.org/)
-http://rebuildthehope.org/organizations/ : list of action groups
+
+
+[http://rebuildthehope.org/organizations/ : list of action groups](http://rebuildthehope.org/organizations/)
 
