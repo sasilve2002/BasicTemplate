@@ -14,7 +14,8 @@ date: 2017-05-22 15:47:00 -07:00
 
 [http://whatdoidoabouttrump.com/ : resource hub](http://whatdoidoabouttrump.com/)
 
-https://5calls.org/ : auto connects to MoC's with issues & scripts
+
+[https://5calls.org/ : auto connects to MoC's with issues & scripts](https://5calls.org/)
 
 https://dailyaction.org/ : texts to you a # to call to MoC's with issues & scripts 
 
