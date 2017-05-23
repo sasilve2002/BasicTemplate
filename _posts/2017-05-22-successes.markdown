@@ -29,7 +29,7 @@ date: 2017-05-22 22:23:00 -07:00
 
 **February 16th**, 2017 - **Kellyanne** Conway has been **banned **from an **MSNBC** show because of her irresponsible interview tactics, and banned from MSNBC’s “Morning Joe” because of her ridiculous and unconstructive interview responses. 
 
-February 15, 2017 - Andy Puzder (CEO of CKE Resturants), nominated for Secretary of Labor, withdrew from the nomination today. 
+**February 15th**, 2017 - Andy **Puzder** (CEO of **CKE** Resturants), nominated for Secretary of Labor, **withdrew** from the nomination today. 
 
 February 13, 2017 - Michael Flynn has resigned from T's National Security Director because of inappropriate conversations with Russian officials.
 
