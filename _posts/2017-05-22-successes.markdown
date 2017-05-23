@@ -3,7 +3,7 @@ title: Successes
 date: 2017-05-22 22:23:00 -07:00
 ---
 
-**Successes**    May 2017
+**Resistance Successes**    May 2017
 
 **May 17 th**, 2017 - Rosenstein wrote that **Special Prosecuter** (FBI Director) **Mueller** will conduct an investigation into “any **links** and/or coordination between the **Russian** government and individuals associated with the campaign of President Donald Trump,” 
 
