@@ -31,11 +31,11 @@ date: 2017-05-22 22:23:00 -07:00
 
 **February 15th**, 2017 - Andy **Puzder** (CEO of **CKE** Resturants), nominated for Secretary of Labor, **withdrew** from the nomination today. 
 
-February 13, 2017 - Michael Flynn has resigned from T's National Security Director because of inappropriate conversations with Russian officials.
+February 13th, 2017 - Michael Flynn has resigned from T's National Security Director because of inappropriate conversations with Russian officials.
 
-February 13, 2017 - The prime minister of Canada did not allow his hand to be pulled in when he shook hands with Trump.
+February 13th, 2017 - The prime minister of Canada did not allow his hand to be pulled in when he shook hands with Trump.
 
-February 12, 2017 - Activists marched in New York City from Columbus Circle to Trump Tower to stage an LGBTQ+ make out session.
+February 12th, 2017 - Activists marched in New York City from Columbus Circle to Trump Tower to stage an LGBTQ+ make out session.
 
 February 12, 2017 - Nationwide protests to demand the defunding of Planned Parenthood  yesterday were largely overshadowed by counter-protests supporting the organization.
 
