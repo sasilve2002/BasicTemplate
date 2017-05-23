@@ -8,7 +8,7 @@ date: 2017-05-22 15:47:00 -07:00
 **Quick & easy ways to resist while waiting in line, etc.**
 
 
-[**http://www.takeastance.us/** : records & sends your message to your MoC
+[****http://www.takeastance.us/**** : records & sends your message to your MoC
 ](http://www.takeastance.us/)
 
 
