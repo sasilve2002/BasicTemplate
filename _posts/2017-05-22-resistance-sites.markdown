@@ -8,9 +8,6 @@ date: 2017-05-22 15:47:00 -07:00
 **Quick & easy ways to resist while waiting in line, etc.**
 
 
-[**https://dailyaction.org/book-club/** : book club with dialogues with authors](https://dailyaction.org/book-club/)
-
-
 [**http://whatdoidoabouttrump.com/** : resource hub](http://whatdoidoabouttrump.com/)
 
 
@@ -34,6 +31,9 @@ date: 2017-05-22 15:47:00 -07:00
 
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
+
+
+[**https://dailyaction.org/book-club/** : book club with dialogues with authors](https://dailyaction.org/book-club/)
 
 
 
