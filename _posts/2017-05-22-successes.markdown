@@ -37,5 +37,5 @@ date: 2017-05-22 22:23:00 -07:00
 
 **February 12th**, 2017 - Activists **marched** in New York City from Columbus Circle to Trump Tower to stage an **LGBTQ+** make out session.
 
-February 12, 2017 - Nationwide protests to demand the defunding of Planned Parenthood  yesterday were largely overshadowed by counter-protests supporting the organization.
+**February 12th**, 2017 - Nationwide protests to demand the **defunding** of **Planned Parenthood** yesterday were largely **overshadowed** by counter-protests supporting the organization.
 
