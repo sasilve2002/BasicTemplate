@@ -18,7 +18,7 @@ date: 2017-05-22 15:47:00 -07:00
 
 
 
-[**https://reactletter.com/** : weekly action plan sent via email](**https://reactletter.com/**)
+[**https://reactletter.com/** : a list of actions delivered via e-mail once a week.](**https://reactletter.com/**)
 
 
 ## **More Actions:**
