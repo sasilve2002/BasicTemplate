@@ -19,23 +19,23 @@ date: 2017-05-22 22:13:00 -07:00
 
 **March 8th, 2017** - A new **statue** accompanied the Manhattan Bull statue in honor of **International Women’s Day**.  
 
-**March 2nd, 2017** - Attorney General Jeff Sessions has recused himself from any investigation into the Trump campaign’s contacts with Russia after it was revealed he lied ,
+**March 2nd, 2017** - Attorney General Jeff **Sessions** has **recused** himself from any **investigation** into the **Trump** campaign’s contacts with **Russia** after it was revealed he lied.
 
-February 20th, 2017 -  Noted bigot and professional troll, Milo Yiannopoulos lost his book deal with Simon & Schuster because of comments he made defending pedophilia. 
+**February 20th, 2017** -  Noted bigot and professional troll, Milo **Yiannopoulos lost** his **book deal** with Simon & Schuster because of comments he made defending **pedophilia**. 
 
-February 19th, 2017 - Prominent Republican Senator John McCain spoke out about President Trump’s claim that the press is the enemy of the United States. 
+**February 19th, 2017** - Prominent Republican Senator John **McCain ****spoke out about** President **Trump’s claim** that the **press is the enemy** of the United States. 
 
-February 18th, 2017 - Milo Yiannopoulos has been disinvited from speaking at CPAC, the most prominent annual conservative conference. 
+**February 18th, 2017** - Milo **Yiannopoulos** has been **disinvited** from speaking at **CPAC**, the most prominent annual conservative conference. 
 
-February 15, 2017 - Kellyanne Conway has been banned from an MSNBC show because of her irresponsible interview tactics, and banned from MSNBC’s “Morning Joe” because of her ridiculous and unconstructive interview responses. 
+**February 15, 2017** - Kellyanne **Conway** has been **banned** from an **MSNBC** show because of her irresponsible interview tactics, and banned from MSNBC’s “Morning Joe” because of her ridiculous and unconstructive interview responses. 
 
-February 15, 2017 - Andy Puzder (CEO of CKE Resturants), nominated for Secretary of Labor, withdrew from the nomination today. 
+**February 15, 2017** - Andy **Puzder** (CEO of CKE Resturants), nominated for Secretary of Labor, **withdrew** from the nomination today. 
 
-February 13, 2017 - Michael Flynn has resigned from T's National Security Director because of inappropriate conversations with Russian officials.
+**February 13, 2017** - Michael **Flynn** has resigned from T's National Security Director because of inappropriate conversations with **Russian** officials.
 
-February 13, 2017 - The prime minister of Canada did not allow his hand to be pulled in when he shook hands with Trump.
+**February 13, 2017** - The prime minister of **Canada** **did not** allow his hand to be pulled in when he shook hands with Trump.
 
-February 12, 2017 - Activists marched in New York City from Columbus Circle to Trump Tower to stage an LGBTQ+ make out session.
+**February 12, 2017** - Activists **marched** in New York City from Columbus Circle to Trump Tower to stage an **LGBTQ+** make out session.
 
-February 12, 2017 - Nationwide protests to demand the defunding of Planned Parenthood  yesterday were largely overshadowed by counter-protests supporting the organization.
+**February 12, 2017** - Nationwide protests to demand the **defunding of Planned Parenthood** yesterday were largely **overshadowed by counter-protests** supporting the organization.
 
