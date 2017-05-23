@@ -19,7 +19,7 @@ date: 2017-05-22 22:23:00 -07:00
 
 **March 8th**, 2017 - A new **statue** accompanied the Manhattan Bull statue in honor of **International Women’s Day.**  
 
-March 2nd, 2017 - Attorney General Jeff Sessions has recused himself from any investigation into the Trump campaign’s contacts with Russia after it was revealed he lied ,
+**March 2nd**, 2017 - Attorney General Jeff **Sessions** has **recused** himself from any investigation into the **Trump** campaign’s contacts with **Russia** after it was revealed he lied.
 
 February 20th, 2017 -  Noted bigot and professional troll, Milo Yiannopoulos lost his book deal with Simon & Schuster because of comments he made defending pedophilia. 
 
