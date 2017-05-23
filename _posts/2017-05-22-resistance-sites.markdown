@@ -24,6 +24,12 @@ date: 2017-05-22 15:47:00 -07:00
 [**https://dailyaction.org/** : texts to you a # to call to MoC's with issues & scripts](https://dailyaction.org/) 
 
 
+[**https://thesixtyfive.org/** : contacts, scripts, weekly action prompts](**https://thesixtyfive.org/**)
+
+
+[**https://reactletter.com/** : weekly action plan sent via email](**https://reactletter.com/**)
+
+
 ## **More Actions:**
 
 
@@ -33,10 +39,6 @@ date: 2017-05-22 15:47:00 -07:00
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
 
-[http://thesixtyfive.org/
-contacts, scripts, weekly actions 
-](http://thesixtyfive.org/)
 
-[https://www.reactletter.com/
-weekly action sent via email](https://www.reactletter.com/) 
+
 
