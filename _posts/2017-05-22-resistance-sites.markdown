@@ -33,9 +33,10 @@ date: 2017-05-22 15:47:00 -07:00
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
 
-http://thesixtyfive.org/
-[contacts, scripts, weekly actions](http://thesixtyfive.org/)
+[http://thesixtyfive.org/
+contacts, scripts, weekly actions 
+](http://thesixtyfive.org/)
 
-https://www.reactletter.com/
-[weekly action sent via email](https://www.reactletter.com/)
+[https://www.reactletter.com/
+weekly action sent via email](https://www.reactletter.com/) 
 
