@@ -17,10 +17,6 @@ date: 2017-05-22 15:47:00 -07:00
 [**https://dailyaction.org/** : texts to you a # to call to MoC's with issues & scripts](https://dailyaction.org/) 
 
 
-
-[**https://reactletter.com/** : a list of actions delivered via e-mail once a week.](**https://reactletter.com/**)
-
-
 ## **More Actions:**
 
 
