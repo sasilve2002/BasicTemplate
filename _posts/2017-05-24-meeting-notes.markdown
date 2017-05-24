@@ -28,7 +28,7 @@ We reviewed use of our website:
 - Everyone is invited to add to the website.
 
 We looked at upcoming marches : 
-[National Gun Violence Awareness Day](https://everytown.org/) (National: June 2nd) - “Wear Orange Golden Gate Bridge March” - SF, June 3, http://act.everytown.org
+[National Gun Violence Awareness Day](https://everytown.org/) (National: June 2nd) - “Wear Orange Golden Gate Bridge March” - SF, June 3.
 [Equality March](http://equalitymarch2017.org) – June 11th, LBTQ+ marching to rights protection for all targeted communities, http://equalitymarch2017.org
 SF: 11 am – 5 pm, [http://facebook.com](http://facebook.com)
 San Jose: 11 am, [http://equalitymarchsj.domoreproject.org](http://equalitymarchsj.domoreproject.org)
