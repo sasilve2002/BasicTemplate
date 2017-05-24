@@ -1,6 +1,7 @@
 ---
 title: Why the heck are we meeting?
 date: 2017-05-21 16:29:00 -07:00
+published: false
 ---
 
 **What's happening with the resistance?**  [Here's an **excerpt from Salon, May 17th**:  ](http://www.salon.com/2017/05/17/future-of-the-resistance-where-does-the-anti-trump-movement-go-from-here/)
