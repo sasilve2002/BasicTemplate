@@ -9,14 +9,14 @@ date: 2017-05-24 06:40:00 -07:00
 
 Attendees:
 
-Ann Hertelendy 
-Lila Taylor 
-Mark Silverman 
-Nancy Silliphant Forster 
-Raymond Ritter 
-Samara Silverman 
-Susan Silverman 
-Terese Tricamo 
+Ann Hertelendy, 
+Lila Taylor, 
+Mark Silverman, 
+Nancy Silliphant Forster, 
+Raymond Ritter, 
+Samara Silverman, 
+Susan Silverman,
+Terese Tricamo, 
 **Special Visitors**: Myisha Hill & from [Sidewalk Talk](http://www.sidewalktalksf.com/)
 
 **Meeting Notes**:
