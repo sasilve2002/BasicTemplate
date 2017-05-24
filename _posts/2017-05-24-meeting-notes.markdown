@@ -36,6 +36,6 @@ We wrote **50 postcards** to get the vote out for [Archie Parnell](https://archi
 
 **No meeting in June**, as Mark & I will be away.
 
-**Next meeting**:
+## **Next meeting**:
 
 **Tuesday, July 11, 2017, 7:30 pm**
