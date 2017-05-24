@@ -23,11 +23,11 @@ Terese Tricamo,
 
 We welcomed two folks, Travia & Myisha, from “[Sidewalk Talk](http://www.sidewalktalksf.com/)” who graciously demonstrated how they **LISTEN**:  one spoke her confusion & frustration over her support of Trump  while the other just sat and really listened with sympathetic acceptance.  It was an uplifting demonstration. 
  
-We reviewed use of our website:  
+We reviewed use of our **website**:  
 - Actions are posted almost daily, so check in often.
 - Everyone is invited to add to the website - just email/phone/text me (no personal info because it is a public site).
 
-We looked at upcoming marches : 
+We looked at **upcoming marches** : 
 [National Gun Violence Awareness Day](https://everytown.org/) (National: June 2nd) - “Wear Orange Golden Gate Bridge March” - SF, June 3.
 [Equality March](http://equalitymarch2017.org) – June 11th, LBTQ+ marching to rights protection for all targeted communities, http://equalitymarch2017.org
 SF: 11 am – 5 pm, San Jose: 11 am, [http://equalitymarchsj.domoreproject.org](http://equalitymarchsj.domoreproject.org)
