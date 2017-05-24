@@ -3,7 +3,7 @@ title: Flip Successes!
 date: 2017-05-24 08:24:00 -07:00
 ---
 
-election updates
+**Election updates**
 from [What Do I Do About Trump](http://whatdoidoabouttrump.com/2017/05/24/flippable-team-big-wins-court-polls/) 
 
 New Hampshire and New York flip state seats! On Tuesday night, voters in Carroll County, NH, flipped a reliably Republican State House seat blue. Representative-elect Edith DesMarais will be the first-ever Democrat to hold this seat. And in Long Island, NY, in a district Trump won by 23 points, public school teacher and Democrat Christine Pellegrino flipped her State Assembly seat blue. These are the first flipped state seats since Trump’s election, and a clear indication that our movement is working.
