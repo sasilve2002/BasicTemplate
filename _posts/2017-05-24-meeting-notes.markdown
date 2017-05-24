@@ -25,7 +25,7 @@ We welcomed two folks, Travia & Myisha, from “[Sidewalk Talk](http://www.sidew
  
 We reviewed use of our website:  
 - Actions are posted almost daily, so check in often.
-- Everyone is invited to add to the website.
+- Everyone is invited to add to the website - just email/phone/text me (no personal info because it is a public site).
 
 We looked at upcoming marches : 
 [National Gun Violence Awareness Day](https://everytown.org/) (National: June 2nd) - “Wear Orange Golden Gate Bridge March” - SF, June 3.
