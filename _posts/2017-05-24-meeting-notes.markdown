@@ -17,7 +17,7 @@ Raymond Ritter,
 Samara Silverman, 
 Susan Silverman,
 Terese Tricamo, 
-**Special Visitors**: Myisha Hill & from [Sidewalk Talk](http://www.sidewalktalksf.com/)
+**Special Visitors**: Myisha  & Travia from [Sidewalk Talk](http://www.sidewalktalksf.com/)
 
 **Meeting Notes**:
 
