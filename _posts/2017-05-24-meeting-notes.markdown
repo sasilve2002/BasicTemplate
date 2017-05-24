@@ -38,4 +38,4 @@ We wrote **50 postcards** to get the vote out for [Archie Parnell](https://archi
 
 **Next Meeting**:
 ### Tuesday, July 11, 2017, 7:30 pm
-Please contact me for the location.
+[Please contact me for the location](sasilve2002@gmail.com).
