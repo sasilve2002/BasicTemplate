@@ -28,6 +28,7 @@ Terese Tricamo
 Special Visitors: Myisha Hill & from [Sidewalk Talk](http://www.sidewalktalksf.com/)
 
 **Meeting Notes**:
+
 We welcomed two folks from “[Sidewalk Talk](http://www.sidewalktalksf.com/)” who graciously demonstrated how they **LISTEN**:  one spoke her confusion & frustration over her support of Trump  while the other just sat and really listened with sympathetic acceptance.  It was an uplifting demonstration. 
  
 We reviewed use of our website:  
