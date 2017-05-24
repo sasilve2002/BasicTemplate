@@ -30,8 +30,8 @@ We reviewed use of our website:
 We looked at upcoming marches : 
 [National Gun Violence Awareness Day](http://act.everytown.org) (National: June 2nd) - “Wear Orange Golden Gate Bridge March” - SF, June 3, http://act.everytown.org
 [Equality March](http://equalitymarch2017.org) – June 11th, LBTQ+ marching to rights protection for all targeted communities, http://equalitymarch2017.org
-SF: 11 am – 5 pm, http://facebook.com
-San Jose: 11 am, http://equalitymarchsj.domoreproject.org
+SF: 11 am – 5 pm, [http://facebook.com](http://facebook.com)
+San Jose: 11 am, [http://equalitymarchsj.domoreproject.org](http://equalitymarchsj.domoreproject.org)
 
 We wrote **50 postcards** to get the vote out for Archie Parnell in South Carolina's 5th District, special election June 20th.  Go Dems!
 
