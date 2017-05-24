@@ -33,7 +33,7 @@ We looked at upcoming marches :
 SF: 11 am – 5 pm, [http://facebook.com](http://facebook.com)
 San Jose: 11 am, [http://equalitymarchsj.domoreproject.org](http://equalitymarchsj.domoreproject.org)
 
-We wrote **50 postcards** to get the vote out for Archie Parnell in South Carolina's 5th District, special election June 20th.  Go Dems!
+We wrote **50 postcards** to get the vote out for [Archie Parnell](https://archieparnell.com/) in South Carolina's 5th District, special election June 20th.  Go Dems!
 
 **No meeting in June**, as Mark & I will be away.
 
