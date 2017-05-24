@@ -19,8 +19,9 @@ Susan Silverman
 Terese Tricamo 
 Special Visitors: Myisha Hill & from [Sidewalk Talk](http://www.sidewalktalksf.com/)
 
-Meeting Notes:
-We welcomed two folks from “Sidewalk Talk” who graciously demonstrated how they LISTEN:  one spoke her confusion & frustration over her support of Trump  while the other just sat and really listened with sympathetic acceptance.  It was an uplifting demonstration.  
+**Meeting Notes**:
+We welcomed two folks from “[Sidewalk Talk](http://www.sidewalktalksf.com/)” who graciously demonstrated how they **LISTEN**:  one spoke her confusion & frustration over her support of Trump  while the other just sat and really listened with sympathetic acceptance.  It was an uplifting demonstration. 
+ 
 We reviewed use of our website:  
 - Actions are posted almost daily, so check in often.
 - Everyone is invited to add to the website.
@@ -31,10 +32,10 @@ Equality March – June 11th, LBTQ+ marching to rights protection for all target
 SF: 11 am – 5 pm, http://facebook.com
 San Jose: 11 am, http://equalitymarchsj.domoreproject.org
 
-We wrote 50 postcards to get the vote out for Archie Parnell in South Carolina's 5th District, special election June 20th.  Go Dems!
+We wrote **50 postcards** to get the vote out for Archie Parnell in South Carolina's 5th District, special election June 20th.  Go Dems!
 
-No meeting in June, as Mark & I will be away.
+**No meeting in June**, as Mark & I will be away.
 
-Next meeting:
+**Next meeting**:
 
-Tuesday, July 11, 2017, 7:30 pm
+**Tuesday, July 11, 2017, 7:30 pm**
