@@ -3,6 +3,8 @@ title: DREAMer Postcard
 date: 2017-05-24 20:32:00 -07:00
 ---
 
+A little moral support for this young immigrant:
+
 Excerpted from [Jen Hofman's "Weekly Action Checklist for Democrats, Independents, and Republicans of Conscience"](https://jenniferhofmann.com/home/weekly-action-checklist-democrats-independents-republicans-conscience/)
  
 Action: Send a postcard to a special young man.
