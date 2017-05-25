@@ -12,10 +12,10 @@ Nestor is a 27-year-old DREAMer who has been at Stewart Detention Center in Geor
  
 **Address**: 
 
-**Nestor Daniel Avila Miranda
+**Nestor Daniel Avila Miranda**
 
-A# 204-631-097
+**A# 204-631-097**
 
-P.O. Box 248
+**P.O. Box 248**
 
-Lumpkin, GA 31815**
+**Lumpkin, GA 31815**
