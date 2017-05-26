@@ -3,7 +3,7 @@ title: March for Truth
 date: 2017-05-26 06:28:00 -07:00
 ---
 
-Congress is in **recess** beginning Memorial Day. There are marches scheduled around the country : 
+Congress is in **recess** beginning Memorial Day. There are marches scheduled around the country - closest one to us is in Sacramento. If you haven't had a chance to join in a march against Twitter Twit's **HARMFUL AGENDA**, try this one on for size:
 
 From the **March For Truth** organizers:
 
