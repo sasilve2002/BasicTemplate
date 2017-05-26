@@ -9,6 +9,6 @@ Congress is in **recess** beginning Memorial Day.  From the **March For Truth** 
 
 The closest one to us is:
 
-[Sacramento](www.facebook.com)
+[**Sacramento**](www.facebook.com)
 7PM - 9pm on the south steps of the CA State Capitol building
 Sacramento CA
