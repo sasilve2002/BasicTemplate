@@ -13,9 +13,11 @@ The closest one to us is:
 
 [**Sacramento**](https://www.marchfortruth.info/find-a-local-march/)
 
+**Saturday, June 3, 2017**
+
 7PM - 9pm 
 
-on the south steps of the CA State Capitol building
+on the south steps of the **CA State Capitol** building
 
 Sacramento CA
 
