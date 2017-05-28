@@ -10,3 +10,11 @@ In an election where most of the voting was done early, Greg Gianforte has been 
 Please take a moment to let Mr. Gianforte know what we expect of elected officials in the federal government: 
 
 c/o Greg for Montana, PO Box 877, Helena, MT 59624
+
+Some points to include:
+
+1.  At the end of the day, our representatives are accountable to the people, and the press is instrumental in holding those members accountable.
+
+2.  In the House of Representatives Ethics Manual there is a rule requiring all members to conduct themselves “at all times in a manner that reflects creditably on the House.” That rule applies to how members work with the press.
+
+3.  
