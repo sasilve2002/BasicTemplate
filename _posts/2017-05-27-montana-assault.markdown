@@ -16,7 +16,6 @@ Some points you might include:
 
 2.  In the House of Representatives Ethics Manual there is a rule requiring all members to conduct themselves “at all times in a manner that reflects creditably on the House.” That rule applies to how members work with the press.
 
-([excerpted from CNN Politics]:
 3. "If you can't handle tough questions from a reporter, you will have a real tough time handling tough questions from constituents," Democratic Rep. Seth Moulton told CNN's Alisyn Camerota on "New Day."
 
 4.  Virginia Rep. Scott Taylor, former Navy SEAL, said of his fellow Republican to CNN's John Berman on "New Day",   "No question the behavior is unacceptable."
