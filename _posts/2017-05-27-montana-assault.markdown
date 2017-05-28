@@ -19,6 +19,6 @@ Some points you might include:
 
 3. "If you can't handle tough questions from a reporter, you will have a real tough time handling tough questions from constituents," Democratic Rep. Seth Moulton told CNN's Alisyn Camerota on "New Day."
 
-4.  Virginia Rep. Scott Taylor said of his fellow Republican: "No question the behavior is unacceptable. I saw Congressman Moulton on there speaking about how he's recruiting veterans who have been in tougher situations; I am too. If you are a veteran, call me up."
+4.  Virginia Rep. Scott Taylor, former Navy SEAL, said of his fellow Republican to CNN's John Berman on "New Day",   "No question the behavior is unacceptable."
 
  
