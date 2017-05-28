@@ -7,4 +7,6 @@ In an election where most of the voting was done early, Greg Gianforte has been 
 
 [https://www.theguardian.com/us-news/2017/may/26/greg-gianforte-wins-montana-congress-race-body-slam-reporter](https://www.theguardian.com/us-news/2017/may/26/greg-gianforte-wins-montana-congress-race-body-slam-reporter) 
 
-Please take a moment to let Mr. Gianforte know what we expect of elected officials in the federal government: c/o Greg for Montana, PO Box 877, Helena, MT 59624
+Please take a moment to let Mr. Gianforte know what we expect of elected officials in the federal government: 
+
+c/o Greg for Montana, PO Box 877, Helena, MT 59624
