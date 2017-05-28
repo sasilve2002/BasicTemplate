@@ -11,7 +11,7 @@ Please take a moment to let Mr. Gianforte know what we expect of elected officia
 
 c/o Greg for Montana, PO Box 877, Helena, MT 59624
 
-Some points you might include:
+Some points you might include ([excerpted from CNN Politics](http://www.cnn.com/2017/05/26/politics/gianforte-montana-win-meaning/)):
 
 1.  At the end of the day, our representatives are accountable to the people, and the press is instrumental in holding those members accountable.
 
