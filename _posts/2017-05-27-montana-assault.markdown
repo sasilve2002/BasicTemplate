@@ -3,7 +3,7 @@ title: Montana Assault
 date: 2017-05-27 19:33:00 -07:00
 ---
 
-In an election where most of the voting was done early, Greg Gianforte has been elected to Congress within a day of assaulting a reporter.
+In an election where most of the voting was done early, Greg Gianforte has been elected to Congress within a day of assaulting a reporter - here's the Guardian's report:
 
 [https://www.theguardian.com/us-news/2017/may/26/greg-gianforte-wins-montana-congress-race-body-slam-reporter](https://www.theguardian.com/us-news/2017/may/26/greg-gianforte-wins-montana-congress-race-body-slam-reporter) 
 
