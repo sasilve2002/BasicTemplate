@@ -6,7 +6,6 @@ date: 2017-05-27 19:33:00 -07:00
 In an election where most of the voting was done early, Greg Gianforte has been elected to Congress within a day of assaulting a reporter - here's a report from [the Guardian](https://www.theguardian.com/commentisfree/2017/may/26/republicans-condone-violence-greg-gianforte): 
 
 
-
 Please take a moment to let Mr. Gianforte know what we expect of elected officials in the federal government: 
 
 c/o Greg for Montana, PO Box 877, Helena, MT 59624
