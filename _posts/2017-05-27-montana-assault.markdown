@@ -11,9 +11,9 @@ Please take a moment to let Mr. Gianforte know what we expect of elected officia
 
 c/o Greg for Montana, PO Box 877, Helena, MT 59624
 
-Some points you might include (http://www.cnn.com/2017/05/26/politics/gianforte-montana-win-meaning/)):
+Some points you might include [:
 
-1.  At the end of the day, our representatives are accountable to the people, and the press is instrumental in holding those members accountable.
+](http://www.cnn.com/2017/05/26/politics/gianforte-montana-win-meaning/)1.  At the end of the day, our representatives are accountable to the people, and the press is instrumental in holding those members accountable.
 
 2.  In the House of Representatives Ethics Manual there is a rule requiring all members to conduct themselves “at all times in a manner that reflects creditably on the House.” That rule applies to how members work with the press.
 
