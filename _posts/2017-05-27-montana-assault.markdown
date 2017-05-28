@@ -7,9 +7,12 @@ In an election where most of the voting was done early, **Greg Gianforte** has b
 
 Please take a moment to let **Mr. Gianforte** know what we **expect of elected officials** in the federal government: 
 
-**c/o Greg for Montana 
+**c/o Greg for Montana
+ 
 PO Box 877 
+
 Helena, MT 59624**
+
 
 Some **points** you might include:
 
