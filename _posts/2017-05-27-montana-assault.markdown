@@ -5,7 +5,7 @@ date: 2017-05-27 19:33:00 -07:00
 
 In an election where most of the voting was done early, Greg Gianforte has been elected to Congress within a day of assaulting a reporter - here's the Guardian's report:
 
-http://www.cnn.com/2017/05/26/politics/gianforte-montana-win-meaning/[](http://www.cnn.com/2017/05/26/politics/gianforte-montana-win-meaning/)
+[http://www.cnn.com/2017/05/26/politics/gianforte-montana-win-meaning/](http://www.cnn.com/2017/05/26/politics/gianforte-montana-win-meaning/)
 
 Please take a moment to let Mr. Gianforte know what we expect of elected officials in the federal government: 
 
