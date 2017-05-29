@@ -3,7 +3,7 @@ title: Public School $$
 date: 2017-05-29 08:54:00 -07:00
 ---
 
-**Action**: Oppose taxpayer-funded **discrimination** of **LGBTQ+ youth**. (excerpted from [Jen Hofmann's] Activism Checklist) (https://docs.google.com/document/d/1L8HnKq6hcAfbWUa0a-7PPA4S7h9gqkRzFJGu60gJfws/preview) 
+**Action**: Oppose taxpayer-funded **discrimination** of **LGBTQ+ youth**. (excerpted from [Jen Hofmann's Activism Checklist]((https://docs.google.com/document/d/1L8HnKq6hcAfbWUa0a-7PPA4S7h9gqkRzFJGu60gJfws/preview))) (https://docs.google.com/document/d/1L8HnKq6hcAfbWUa0a-7PPA4S7h9gqkRzFJGu60gJfws/preview) 
 
 **Call: All 3 MoCs** (see bottom or page for contacts).
 
