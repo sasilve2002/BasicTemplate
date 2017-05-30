@@ -3,7 +3,7 @@ title: March for Truth
 date: 2017-05-26 06:28:00 -07:00
 ---
 
-Updated May 30, 2017:
+**Updated May 30, 2017**:
 A [Rally] for [March for Truth ](https://www.facebook.com/MarchforTruthSanFrancisco/)(https://www.eventbrite.com/e/march-for-truth-tickets-34681337815) is scheduled in SF, which you have to sign up for through [eventbrite.](https://www.eventbrite.com/e/march-for-truth-tickets-34681337815)  And, there's one in Sacramento:
 [**Sacramento**](https://www.marchfortruth.info/find-a-local-march/)
 
