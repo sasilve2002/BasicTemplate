@@ -1,6 +1,7 @@
 ---
 title: Montana Assault
 date: 2017-05-27 19:33:00 -07:00
+published: false
 ---
 
 In an election where most of the voting was done early, **Greg Gianforte** has been elected to Congress within a day of **assaulting a reporter** - click here for a report from [**the Guardian**](https://www.theguardian.com/commentisfree/2017/may/26/republicans-condone-violence-greg-gianforte). 
