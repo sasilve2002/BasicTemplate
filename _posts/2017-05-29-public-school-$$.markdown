@@ -1,6 +1,7 @@
 ---
 title: Public School $$
 date: 2017-05-29 08:54:00 -07:00
+published: false
 ---
 
 **Action**: Oppose taxpayer-funded **discrimination** of [LGBTQ+ youth](https://www.lgbtqnation.com/2017/05/besty-devos-says-state-funded-schools-can-reject-lgbtq-students/#.WSb0RlYV2q8.facebook).  Excerpted from [Jen Hofmann's Activism Checklist](https://docs.google.com/document/d/1L8HnKq6hcAfbWUa0a-7PPA4S7h9gqkRzFJGu60gJfws/preview). 
