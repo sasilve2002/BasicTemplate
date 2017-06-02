@@ -7,7 +7,7 @@ According to Northern California Resistance (I cannot verify this because I have
 
 This will be a great opportunity to meet grassroots organizers and organizations, sign up for organizing events, and share ideas for how we can continue moving forward together in the resistance.
  
-Here's the information for the event:
+Here's the **information** for the event:
  
 Resistance Summer Press Conference Launch
 Saturday, **June 3**, 2017
