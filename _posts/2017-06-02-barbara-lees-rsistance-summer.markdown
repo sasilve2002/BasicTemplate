@@ -3,8 +3,6 @@ title: Barbara Lee's Rsistance Summer
 date: 2017-06-02 16:03:00 -07:00
 ---
 
- (:
-
 According to Northern California Resistance (I cannot verify this because I have no cell connection where I am right now)  **tomorrow**, **Barbara Lee** will be in **Oakland** for a **press conference** to launch **Resistance Summer** – a national effort to train, organize, and mobilize Democrats in every community across the country. 
 
 This will be a great opportunity to meet grassroots organizers and organizations, sign up for organizing events, and share ideas for how we can continue moving forward together in the resistance.
