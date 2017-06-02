@@ -9,7 +9,7 @@ This will be a great opportunity to meet grassroots organizers and organizations
  
 Here's the **information** for the event:
  
-Resistance Summer Press Conference Launch
+**Resistance Summer Press Conference Launch**
 
 Saturday, **June 3**, 2017
 
