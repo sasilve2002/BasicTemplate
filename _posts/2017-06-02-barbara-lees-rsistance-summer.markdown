@@ -12,11 +12,12 @@ This will be a great opportunity to meet grassroots organizers and organizations
 Here's the information for the event:
  
 Resistance Summer Press Conference Launch
-Saturday, June 3, 2017
+Saturday, **June 3**, 2017
 11 a.m. - 12 p.m.
- SPUR Oakland
-1544 BroadwayOakland, CA 94612
+SPUR Oakland
+1544 Broadway
+Oakland, CA 94612
 
-Please call Barbara Lee's office to make sure this is happening :)
+Please call [**Barbara Lee**](https://lee.house.gov/)'s office to make sure this is happening : **(510) 763-0370**
  
  
