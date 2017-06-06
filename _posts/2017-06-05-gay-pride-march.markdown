@@ -19,9 +19,15 @@ in San Francisco :
 
 [San Francisco **LGBT Pride**](http://www.sfpride.org/schedule/)
 
+**June 24-25, 2017**
+
 A Celebration of Diversity
 
-**June 24-25, 2017**
+at Civic Center Plaza
+
+12:00 to 6:00 PM
+
+
 
 
 
