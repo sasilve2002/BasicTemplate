@@ -1,5 +1,5 @@
 ---
-title: Gay Pride March
+title: Two Gay Pride Marches
 date: 2017-06-05 20:25:00 -07:00
 ---
 
