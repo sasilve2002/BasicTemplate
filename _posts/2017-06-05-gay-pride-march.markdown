@@ -17,9 +17,12 @@ in San Francisco :
 
 **AND**
 
-**[San Francisco LGBT Pride](http://www.sfpride.org/schedule/)**
+**[San Francisco LGBT Pride]
+(http://www.sfpride.org/schedule/)**
+
 A Celebration of Diversity
-June 24-25, 2017
+
+**June 24-25, 2017**
 
 
 
