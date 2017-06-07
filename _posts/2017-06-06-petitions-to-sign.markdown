@@ -9,7 +9,7 @@ Excerpted from [What Do I Do About Trump?](http://whatdoidoabouttrump.com/action
 
 **Petition #1**
 
-"According to a draft of Trump’s **new birth control coverage** exemption, any employer, school or insurance company would be allowed to **opt out of covering** contraception based not only on religious objection but on any moral objection as well.  Even massive for-profit companies with no religious affiliation would be able to deny birth control coverage to their female employees.  Let’s sign this [petition to support birth control](http://petitions.moveon.org/keystoneprogress/sign/i-support-birth-control) access for all women."
+"According to a draft of Trump’s **new birth control coverage exemption**, any employer, school or insurance company would be allowed to **opt out of covering** contraception based not only on religious objection but on any moral objection as well.  Even massive for-profit companies with no religious affiliation would be able to deny birth control coverage to their female employees.  Let’s sign this [petition to support birth control](http://petitions.moveon.org/keystoneprogress/sign/i-support-birth-control) access for all women."
 
 **Petition #2**
 
