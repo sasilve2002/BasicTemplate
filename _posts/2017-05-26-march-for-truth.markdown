@@ -1,6 +1,7 @@
 ---
 title: March for Truth
 date: 2017-05-26 06:28:00 -07:00
+published: false
 ---
 
 **Updated May 30, 2017**:
