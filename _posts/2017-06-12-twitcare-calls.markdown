@@ -3,8 +3,8 @@ title: TwitCare Calls
 date: 2017-06-12 06:23:00 -07:00
 ---
 
-Excerpted from [**Indivisible**]
-(https://www.indivisibleguide.com/resource/stop-trumpcare-june-action-plan/)
+Excerpted from [Indivisible](https://www.indivisibleguide.com/resource/stop-trumpcare-june-action-plan/)
+
 
 **National Senate Call-In Day** to stop **TrumpCare** is **Wednesday, June 14**, 2017 !
 
