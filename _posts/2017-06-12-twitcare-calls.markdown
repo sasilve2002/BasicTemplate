@@ -8,7 +8,7 @@ Excerpted from [Indivisible](https://www.indivisibleguide.com/resource/stop-trum
 
 **National Senate Call-In Day** to stop **TrumpCare** is **Wednesday, June 14**, 2017 !
 
-Our Senators are fighting against TrumpCare, so our calls will ask **Harris ( (202) 224-3553 )** & **Feinstein ( (202) 224-3841 )** to :
+Our Senators are fighting against TrumpCare, so, on **Wednesday, June 14**, our calls will ask **Harris ( (202) 224-3553 )** & **Feinstein ( (202) 224-3841 )** to :
 
 **Script**:
 
