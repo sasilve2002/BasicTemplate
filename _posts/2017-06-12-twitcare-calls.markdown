@@ -12,7 +12,7 @@ Our Senators are fighting against TrumpCare, so, on **Wednesday, June 14**, our 
 
 **Script**:
 
-My name is ____ and I am a California constituent in zipcode ______.  I am calling to ask Senator ______ to **withhold** consent on all **Senate business** until Republicans agree to hold a **public hearing on TrumpCare**.
+My name is _______ and I am a California constituent in zipcode _________.  I am calling to ask Senator _________ to **withhold** consent on all **Senate business** until Republicans agree to hold a **public hearing on TrumpCare**.
 
 
 
