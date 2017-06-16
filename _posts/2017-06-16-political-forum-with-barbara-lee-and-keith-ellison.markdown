@@ -10,9 +10,13 @@ From [Barbara Lee](https://go.barbaraleeforcongress.org/page/s/political-forum?s
 [Political Forum with Barbara Lee and Keith Ellison](https://go.barbaraleeforcongress.org/page/s/political-forum?source=em170616)
 
 **Saturday, June 24, 2017**
+
 **10am - 12pm**
+
 **Oakland Scottish Rite Center**
+
 1547 Lakeside Drive
+
 Oakland, CA 94612
 
 Add your name to say you'll attend our Political Forum on Saturday, June 24."
