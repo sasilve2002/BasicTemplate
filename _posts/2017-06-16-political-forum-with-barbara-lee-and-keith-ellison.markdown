@@ -19,5 +19,5 @@ From [Barbara Lee](https://go.barbaraleeforcongress.org/page/s/political-forum?s
 
 Oakland, CA 94612
 
-Add your name to say you'll attend our Political Forum on Saturday, June 24."
+[Add your name to say you'll attend our Political Forum on Saturday, June 24](https://go.barbaraleeforcongress.org/page/s/political-forum?source=em170616)."
 
