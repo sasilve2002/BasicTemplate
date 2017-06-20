@@ -1,6 +1,7 @@
 ---
 title: Georgia's Election
 date: 2017-06-01 20:38:00 -07:00
+published: false
 ---
 
 With the **Georgia special election** coming up in a few weeks (**June 20th**), we can help **Jon Ossoff**’s campaign by attending a **House Party** (aka phone bank) - there are a couple happening in **San Francisco**, sponsored by [SwingLeft](https://swingleft.org/special-election-house-parties). 
