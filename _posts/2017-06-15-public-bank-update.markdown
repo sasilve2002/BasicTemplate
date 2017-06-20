@@ -1,6 +1,7 @@
 ---
 title: Public Bank update
 date: 2017-06-15 05:50:00 -07:00
+published: false
 ---
 
 From the [Friends of the Public Bank](https://friendsofpublicbankofoakland.org/next-meeting-and-other-events/) of Oakland:
