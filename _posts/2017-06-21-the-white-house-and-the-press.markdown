@@ -13,8 +13,8 @@ Let’s support the **Free Press** and make a **complaint** to the **White House
 
 **Send your message here**: [https://www.whitehouse.gov/contact](https://www.whitehouse.gov/contact) 
 
-**and/or phone (202) 456-1111 
-**
+**and/or phone (202) 456-1111**
+
 **and/or snail mail: 
 1600 Pennsylvania Ave. NW 
 Washington DC, 20500**
