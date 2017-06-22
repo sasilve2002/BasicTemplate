@@ -15,7 +15,7 @@ Let’s support the **Free Press** and make a **complaint** to the **White House
 
 **and/or phone (202) 456-1111**
 
-**and/or snail mail: 
+**and/or snail mail**: 
 
-1600 Pennsylvania Ave. NW 
-Washington DC, 20500**
+**1600 Pennsylvania Ave. NW** 
+**Washington DC, 20500**
