@@ -10,6 +10,5 @@ This is a site : [issuevoter.org](https://issuevoter.org/) -
 
 **Give it a try !**
 
-[Excerpted from their site](https://issuevoter.org/):
 
 
