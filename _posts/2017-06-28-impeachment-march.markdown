@@ -7,7 +7,7 @@ Let's go to the [**Impeachment March in San Francisco this Sunday, July 2nd**](h
 
 **Sunday, July 2**, 2017
 
-**1:00 pm**
+**1:00 pm - 3:00 pm**
 
 **Justin Herman Plaza, Embarcadero, to Powell Street Station**
 
