@@ -3,7 +3,7 @@ title: Impeachment March
 date: 2017-06-28 07:58:00 -07:00
 ---
 
-[**Impeachment March in San Francisco this Sunday, July 2nd**](https://www.facebook.com/Impeachment-March-San-Francisco-293365771087883/)
+Let's go to the [**Impeachment March in San Francisco this Sunday, July 2nd**](https://www.facebook.com/Impeachment-March-San-Francisco-293365771087883/)
 
 
 Excerpted from Together We Will via [ActionNetwork.org](http://twwusa.org/?s=impeachment)
