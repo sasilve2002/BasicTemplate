@@ -10,7 +10,6 @@ Sunday, July 2, 2017
 Justin Herman Plaza to the Embarcadero
 
 
-
 Excerpted from Together We Will via [ActionNetwork.org](http://twwusa.org/?s=impeachment)
 
 [**Impeachment March - Sunday July 2nd**](https://www.facebook.com/Impeachment-March-San-Francisco-293365771087883/)
