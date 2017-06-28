@@ -17,4 +17,4 @@ Our **next** Nothing Rhymes with Orange **meeting** is:
 
 Please email me for the address
  
-sasilve2002@gmail.com  :)
+sasilve2002@gmail.com  
