@@ -11,7 +11,7 @@ Let's go to the [**Impeachment March in San Francisco this Sunday, July 2nd**](h
 
 **Justin Herman Plaza to the Embarcadero**
 
-San Francisco, CA
+**San Francisco**, CA
 
 
 Excerpted from Together We Will via [ActionNetwork.org](http://twwusa.org/?s=impeachment)
