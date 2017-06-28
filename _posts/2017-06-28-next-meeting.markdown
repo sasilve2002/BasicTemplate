@@ -8,7 +8,9 @@ Reminder :
 Our **next** Nothing Rhymes with Orange **meeting** is:
 
 **Tuesday**
+
 **July 11**, 2017
+
 **7:30 pm**
 
 
