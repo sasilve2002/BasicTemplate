@@ -3,10 +3,11 @@ title: Win Tix for "Hamilton" !
 date: 2017-06-29 08:30:00 -07:00
 ---
 
+**Your chance to win tickets to "Hamilton"** --
+
+
+
 From [Postcards from Kate](https://www.postcardsfromkate.org/) :
-
-Your chance to win tickets to "Hamilton" --
-
 
 "  Daily Thank You 6.29.17
 
