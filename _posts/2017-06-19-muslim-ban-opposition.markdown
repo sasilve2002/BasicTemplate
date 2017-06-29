@@ -1,6 +1,7 @@
 ---
 title: Muslim Ban Opposition
 date: 2017-06-19 06:53:00 -07:00
+published: false
 ---
 
 Excerpted from [whatdoidoabouttrump.com](http://whatdoidoabouttrump.com/)
