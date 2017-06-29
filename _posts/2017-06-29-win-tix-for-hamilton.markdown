@@ -13,7 +13,7 @@ From [Postcards from Kate](https://www.postcardsfromkate.org/) :
 
 Immigration is a complex issue in this country and one that many lawmakers are consistently arguing over. **Lin-Manuel Miranda**, creator of the Broadway musical **Hamilton**, recently announced the [#Ham4All](https://www.facebook.com/hashtag/ham4all?source=feed_text&story_id=583773388678340) **challenge** in support of **Immigrants**: **We Get the Job Done Coalition**, an alliance of 12 immigration-focused nonprofits throughout the US.
 
-[Click here to watch his stunning new video](https://www.youtube.com/watch?v=6_35a7sn6ds) and then send Lin-Manuel a thank you postcard. And, if you can, consider donating to the cause here: [https://hispanicfederation.org/donate/](https://hispanicfederation.org/donate/)
+[Click here to **watch** his stunning new **video**](https://www.youtube.com/watch?v=6_35a7sn6ds) and then send Lin-Manuel a thank you postcard. And, if you can, consider donating to the cause here: [https://hispanicfederation.org/donate/](https://hispanicfederation.org/donate/)
 
 Lin-Manuel Miranda
 
