@@ -16,6 +16,9 @@ Immigration is a complex issue in this country and one that many lawmakers are c
 [Click here to watch his stunning new video](https://www.youtube.com/watch?v=6_35a7sn6ds) and then send Lin-Manuel a thank you postcard. And, if you can, consider donating to the cause here: [https://hispanicfederation.org/donate/](https://hispanicfederation.org/donate/)
 
 Lin-Manuel Miranda
+
 55 Exchange Place
+
 5th Floor
+
 New York, NY, 10005
