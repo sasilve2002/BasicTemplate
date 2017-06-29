@@ -13,5 +13,5 @@ The **U.S. Chamber of Commerce** is a national, **hyper-partisan** corporate fro
 
 Yet corporations that claim to favor climate action and public health protections continue to pay dues to the Chamber. It’s time for **corporations** like Gap, Disney, and Pepsi to **#DropTheChamber**. "
 
-**Click here** to [add your name]
-(https://actionnetwork.org/petitions/sign-the-petition-to-corporate-execs-stop-funding-pro-trump-us-chamber-of-commerce?source=Chamber201706_CAI).
+**[Click here](https://actionnetwork.org/petitions/sign-the-petition-to-corporate-execs-stop-funding-pro-trump-us-chamber-of-commerce?source=Chamber201706_CAI)** to add your name.
+
