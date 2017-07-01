@@ -9,6 +9,8 @@ Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resou
 
 **SAMPLE CALL DIALOGUE: FILIBUSTER BY AMENDMENT**
 
+Senator Harris : 
+
 **Caller**: If the **Senate** moves to proceed to a vote on **TrumpCare**, the Better Care Reconciliation Act, will Senator ( Harris / Feinstein ) prepare hundreds or thousands of **amendments** to offer during **vote-a-rama**?
 
 **Staffer**: I’m not sure what you mean. Vote-a-rama only lasts a night or so.
