@@ -9,9 +9,9 @@ Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resou
 
 **SAMPLE CALL DIALOGUE: FILIBUSTER BY AMENDMENT**
 
-Senator Harris : (202) 224-3553
+Senator **Harris** : (202) 224-3553
 
-Senator Feinstein: (202) 224-3841
+Senator **Feinstein**: (202) 224-3841
 
 **Caller**: If the **Senate** moves to proceed to a vote on **TrumpCare**, the Better Care Reconciliation Act, will Senator ( Harris / Feinstein ) prepare hundreds or thousands of **amendments** to offer during **vote-a-rama**?
 
