@@ -25,4 +25,4 @@ Senator **Feinstein**: (202) 224-3841
 
 **Staffer**: I’ll let [Senator] know of your thoughts.
 
-**Caller**: Please do. If she isn’t using these tools, that means she’s not doing everything in her power as a Senator to **stop TrumpCare**. I expect her to use **every tool** she has. That includes **withholding consent** and offering as many **amendments ** as it takes to get an open and honest conversation about the bill McConnell is trying to rush through. Please take down **my contact information** so you can let me know when Senator ( **Harris / Feinstein** ) decides to **play hardball**.  "
+**Caller**: Please do. If she isn’t using these tools, that means she’s not doing everything in her power as a Senator to **stop TrumpCare**. I expect her to use **every tool** she has. That includes **withholding consent** and offering as many **amendments ** as it takes to get an open and honest conversation about the bill McConnell is trying to rush through. Please take down my **contact information** so you can let me know when Senator ( **Harris / Feinstein** ) decides to **play hardball**.  "
