@@ -3,6 +3,8 @@ title: Keep Those Phones Ringing
 date: 2017-07-01 10:48:00 -07:00
 ---
 
+We, in our blue bubble, have senators who are doing an incredible job protecting health care.  However, our phone calls are still necessary, even to our folks - please read on:
+
 Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resource/july-recess-action-plan/) :
 
 "  **Keep those phones ringing**. The phones in congressional offices across the country have been ringing off the hook—this has real impact. Your senators are tallying the number of calls ‘for’ and ‘against’ TrumpCare. **We need an overwhelming majority to call in against**. Urge group members to make calls each day, and maximize your impact by sharing contact information for your MoC in as many venues as possible.
