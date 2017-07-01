@@ -5,13 +5,13 @@ date: 2017-07-01 10:48:00 -07:00
 
 Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resource/july-recess-action-plan/) :
 
-"  Keep those phones ringing. The phones in congressional offices across the country have been ringing off the hook—this has real impact. Your senators are tallying the number of calls ‘for’ and ‘against’ TrumpCare. We need an overwhelming majority to call in against. Urge group members to make calls each day, and maximize your impact by sharing contact information for your MoC in as many venues as possible.
+"  **Keep those phones ringing**. The phones in congressional offices across the country have been ringing off the hook—this has real impact. Your senators are tallying the number of calls ‘for’ and ‘against’ TrumpCare. We need an overwhelming majority to call in against. Urge group members to make calls each day, and maximize your impact by sharing contact information for your MoC in as many venues as possible.
 
-SAMPLE CALL DIALOGUE: FILIBUSTER BY AMENDMENT
+**SAMPLE CALL DIALOGUE: FILIBUSTER BY AMENDMENT**
 
-Caller: If the Senate moves to proceed to a vote on TrumpCare, the Better Care Reconciliation Act, will [Senator] prepare hundreds or thousands of amendments to offer during vote-a-rama?
+**Caller**: If the Senate moves to proceed to a vote on TrumpCare, the Better Care Reconciliation Act, will [Senator] prepare hundreds or thousands of amendments to offer during vote-a-rama?
 
-Staffer: I’m not sure what you mean. Vote-a-rama only lasts a night or so.
+**Staffer**: I’m not sure what you mean. Vote-a-rama only lasts a night or so.
 
 Caller: That’s because both parties have always agreed to end it. [Senator] can file thousands of amendments—and then call each of them for a vote—so that debate is prolonged long enough to leave Republicans with no choice but to agree to hearings and a complete CBO score. Along with her colleagues, [Senator] can and should let the Republicans know they will hold the floor with amendments as long as it takes.
 
