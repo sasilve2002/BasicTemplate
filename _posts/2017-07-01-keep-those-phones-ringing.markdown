@@ -3,7 +3,7 @@ title: Keep Those Phones Ringing
 date: 2017-07-01 10:48:00 -07:00
 ---
 
-We, in our blue bubble, have senators who are doing an incredible job protecting health care.  However, our phone calls are still necessary, even to our folks - please read on:
+*We, in our blue bubble, have senators who are doing an incredible job protecting health care.  However, our phone calls are still necessary, even to our folks - please read on*:
 
 Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resource/july-recess-action-plan/) :
 
