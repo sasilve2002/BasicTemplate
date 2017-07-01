@@ -9,11 +9,11 @@ Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resou
 
 **SAMPLE CALL DIALOGUE: FILIBUSTER BY AMENDMENT**
 
-**Caller**: If the **Senate** moves to proceed to a vote on **TrumpCare**, the Better Care Reconciliation Act, will Senator Harris/Feinstein prepare hundreds or thousands of amendments to offer during vote-a-rama?
+**Caller**: If the **Senate** moves to proceed to a vote on **TrumpCare**, the Better Care Reconciliation Act, will Senator ( Harris / Feinstein ) prepare hundreds or thousands of **amendments** to offer during **vote-a-rama**?
 
 **Staffer**: I’m not sure what you mean. Vote-a-rama only lasts a night or so.
 
-Caller: That’s because both parties have always agreed to end it. [Senator] can file thousands of amendments—and then call each of them for a vote—so that debate is prolonged long enough to leave Republicans with no choice but to agree to hearings and a complete CBO score. Along with her colleagues, [Senator] can and should let the Republicans know they will hold the floor with amendments as long as it takes.
+Caller: That’s because both parties have always agreed to end it. Senator ( Harris / Feinstein ) can file thousands of amendments—and then call each of them for a vote—so that debate is prolonged long enough to leave Republicans with no choice but to agree to hearings and a complete CBO score. Along with her colleagues, [Senator] can and should let the Republicans know they will hold the floor with amendments as long as it takes.
 
 Staffer: Again, the Senator thinks that could backfire. There are other things we want to work on, as well.
 
