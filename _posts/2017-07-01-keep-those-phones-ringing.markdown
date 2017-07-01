@@ -5,7 +5,7 @@ date: 2017-07-01 10:48:00 -07:00
 
 Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resource/july-recess-action-plan/) :
 
-"  **Keep those phones ringing**. The phones in congressional offices across the country have been ringing off the hook—this has real impact. Your senators are tallying the number of calls ‘for’ and ‘against’ TrumpCare. We need an overwhelming majority to call in against. Urge group members to make calls each day, and maximize your impact by sharing contact information for your MoC in as many venues as possible.
+"  **Keep those phones ringing**. The phones in congressional offices across the country have been ringing off the hook—this has real impact. Your senators are tallying the number of calls ‘for’ and ‘against’ TrumpCare. **We need an overwhelming majority to call in against**. Urge group members to make calls each day, and maximize your impact by sharing contact information for your MoC in as many venues as possible.
 
 **SAMPLE CALL DIALOGUE: FILIBUSTER BY AMENDMENT**
 
