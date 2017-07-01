@@ -1,6 +1,7 @@
 ---
 title: Where do we go from Georgia?
 date: 2017-06-21 06:28:00 -07:00
+published: false
 ---
 
 From Catherine VaughanFollow - CEO and co-founder, flippable.org
