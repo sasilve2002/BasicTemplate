@@ -11,6 +11,8 @@ Excerpted from [Isaac Bloom, Indivisible](https://www.indivisibleguide.com/resou
 
 **SAMPLE CALL DIALOGUE: FILIBUSTER BY AMENDMENT**
 
+*Remember - you can restyle the dialogue any way you feel comfortable -* 
+
 Senator **Harris** : (202) 224-3553
 
 Senator **Feinstein**: (202) 224-3841
