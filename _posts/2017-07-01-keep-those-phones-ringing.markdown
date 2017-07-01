@@ -25,7 +25,7 @@ Senator **Feinstein**: (202) 224-3841
 
 **Staffer**: Again, the Senator thinks that could backfire. There are other things we want to work on, as well.
 
-**Caller**: That’s terrible. Like I said, this is the most important thing happening right now. I expect Senator ( **Feinstein / Haris** ) to get in the arena for her constituents. The stakes are too high to leave any tool at her disposal unused.
+**Caller**: That’s terrible. Like I said, this is the most important thing happening right now. I expect Senator ( **Feinstein / Haris** ) to get (or " continue " ) in the arena for her constituents. The stakes are too high to leave any tool at her disposal unused.
 
 **Staffer**: I’ll let [Senator] know of your thoughts.
 
