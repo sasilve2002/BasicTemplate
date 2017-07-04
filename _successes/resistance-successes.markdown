@@ -1,6 +1,7 @@
 ---
 title: Resistance Successes
 date: 2017-05-22 22:13:00 -07:00
+published: false
 ---
 
 **Successes** as of May 2017
