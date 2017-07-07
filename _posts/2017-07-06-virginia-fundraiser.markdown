@@ -7,5 +7,6 @@ Excerpted from our local **Sister District Project**:
 
 " Melanie's group is putting on a public **fundraiser** at the end of the month [Sunday, July 30th].  Can you promote your **group** coming as a little **enclave**?  [**Click here for the invitation**](http://evite.me/bQ4vh314bU). 
 
-Let's go as a group - email me your RSVP :
-sasilve2002@gmail.com 
+Let's **go** as a **group** - email me your **RSVP** :
+
+**sasilve2002@gmail.com** 
