@@ -1,6 +1,7 @@
 ---
 title: The White House & the Press
 date: 2017-06-21 19:14:00 -07:00
+published: false
 ---
 
 Excerpted from [Rogan's List](http://roganslist.blogspot.com/) :
