@@ -21,6 +21,6 @@ Our **next** Nothing Rhymes with Orange **meeting** is:
 
 
 
-Please **email **me for the meeting **location** :
+Please **email** me for the meeting **location** :
  
 **sasilve2002@gmail.com**  
