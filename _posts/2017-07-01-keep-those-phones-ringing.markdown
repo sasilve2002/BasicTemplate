@@ -17,7 +17,7 @@ Senator **Harris** : (202) 224-3553
 
 Senator **Feinstein**: (202) 224-3841
 
-**Caller**: If the **Senate** moves to proceed to a vote on **TrumpCare**, the Better Care Reconciliation Act, will Senator (** Harris / Feinstein** ) prepare hundreds or thousands of **amendments** to offer during **vote-a-rama**?
+**Caller**: If the **Senate** moves to proceed to a vote on **TrumpCare**, the Better Care Reconciliation Act, will Senator ( **Harris** / **Feinstein** ) prepare hundreds or thousands of **amendments** to offer during **vote-a-rama**?
 
 **Staffer**: I’m not sure what you mean. Vote-a-rama only lasts a night or so.
 
