@@ -5,6 +5,7 @@ collections:
   contacts:
     title: Contacts
     output: true
+    Contact: sasilve2002@gmail.com
   posts:
     title: Posts
     output: true
