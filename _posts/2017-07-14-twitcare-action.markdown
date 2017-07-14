@@ -3,8 +3,8 @@ title: TwitCare Action
 date: 2017-07-14 09:08:00 -07:00
 ---
 
-Excerpted from [Daily Action]
-(https://www.facebook.com/search/346299845735336/stories-by?esd=eyJlc2lkIjoiUzpfSTM0NjI5OTg0NTczNTMzNjo0NjEzNjExOTc1NjI1MzMiLCJwc2lkIjp7IjM0NjI5OTg0NTczNTMzNjo0NjEzNjExOTc1NjI1MzMiOiJVenBmU1RNME5qSTVPVGcwTlRjek5UTXpOam8wTmpFek5qRXhPVGMxTmpJMU16TT0ifSwiY3JjdCI6InRleHQiLCJjc2lkIjoiYjViNzIxYzUyNmRkZWM3MDk4YjhhNTM4YWExNTM1YjEifQ%3D%3D):
+Excerpted from **[Daily Action](https://www.facebook.com/search/346299845735336/stories-by?esd=eyJlc2lkIjoiUzpfSTM0NjI5OTg0NTczNTMzNjo0NjEzNjExOTc1NjI1MzMiLCJwc2lkIjp7IjM0NjI5OTg0NTczNTMzNjo0NjEzNjExOTc1NjI1MzMiOiJVenBmU1RNME5qSTVPVGcwTlRjek5UTXpOam8wTmpFek5qRXhPVGMxTmpJMU16TT0ifSwiY3JjdCI6InRleHQiLCJjc2lkIjoiYjViNzIxYzUyNmRkZWM3MDk4YjhhNTM4YWExNTM1YjEifQ%3D%3D)**
+:
 
 
 " NOTHING TO SEE HERE
