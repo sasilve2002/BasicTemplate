@@ -1,6 +1,7 @@
 ---
 title: Next Meeting
 date: 2017-07-07 07:16:00 -07:00
+published: false
 ---
 
 Our **next** Nothing Rhymes with Orange **meeting** is:
