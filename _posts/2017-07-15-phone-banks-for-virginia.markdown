@@ -7,6 +7,6 @@ date: 2017-07-15 12:20:00 -07:00
 
 ***2 options***:  **1)** you can **join a phone-bank** group; or **2)** you can **phone directly from your own phone** at home (or anywhere) on your own.
 
-Please let me know how it goes.
+Please let me know how it goes.  And, if decide to go to a phone-bank "party," let me know and I'll try to get a group to go together :)
 
 **GO TEAM !!  Let's flip Virginia !**
