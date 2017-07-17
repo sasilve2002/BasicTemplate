@@ -23,7 +23,7 @@ Senator Dianne **Feinstein**
 
 When you reach an aide, leave the following **message**: 
 
-Hello, my name is _________ calling from zip code _______. While I **thank you for opposing Trumpcare**, I am counting on you to use every tool, tactic and procedure at your disposal to **also delay and block** it as a long as possible. Thank you for your time.
+Hello, my name is _____________ calling from zip code ___________. While I **thank you for opposing Trumpcare**, I am counting on you to use every tool, tactic and procedure at your disposal to **also delay and block** it as a long as possible. Thank you for your time.
 
 Phone call won't get through? 
 **Sign and send** the petition to your Democratic Senator: **Delay, Delay, Delay Trumpcare**! 
