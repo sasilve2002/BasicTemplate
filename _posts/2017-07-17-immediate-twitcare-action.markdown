@@ -26,7 +26,7 @@ When you reach an aide, leave the following **message**:
 Hello, my name is _____________ and I am calling from zip code ___________. While I **thank you for opposing Trumpcare**, I am counting on you to use every tool, tactic and procedure at your disposal to **also delay and block** it as a long as possible. Thank you for your time.
 
 Phone call won't get through? 
-**[Sign and send** the petition to your Democratic Senator: **Delay, Delay, Delay Trumpcare](https://www.dailykos.com/campaigns/letters/send-a-letter-to-democratic-senators-delay-delay-delay-trumpcare?detail=emailaction&link_id=1&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-statefull-default-state-calls-needed-democrats-must-fight-hard-against-trumpcare&email_referrer=statefull-default-state-calls-needed-democrats-must-fight-hard-against-trumpcare___245884&email_subject=statefull-default-state-calls-needed-democrats-must-fight-hard-against-trumpcare)**! 
+[**Sign and send** the petition to your Democratic Senator: **Delay, Delay, Delay Trumpcare**](https://www.dailykos.com/campaigns/letters/send-a-letter-to-democratic-senators-delay-delay-delay-trumpcare?detail=emailaction&link_id=1&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-statefull-default-state-calls-needed-democrats-must-fight-hard-against-trumpcare&email_referrer=statefull-default-state-calls-needed-democrats-must-fight-hard-against-trumpcare___245884&email_subject=statefull-default-state-calls-needed-democrats-must-fight-hard-against-trumpcare)**! 
 
 If you don't live in a state with a Republican senator, the whole experience can feel very disempowering—it does for me. But while our Democratic senators have unanimously opposed Trumpcare, there is more they can do to fight and defeat this. 
 
