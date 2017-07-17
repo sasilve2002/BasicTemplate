@@ -35,4 +35,4 @@ Republicans are hell-bent on passing Trumpcare in the Senate. The new version gu
 Keep fighting, 
 Paul Hogarth, Daily Kos
 
-Daily Kos, PO Box 70036, Oakland, CA, 94612.
+Daily Kos, PO Box 70036, Oakland, CA, 94612.  "
