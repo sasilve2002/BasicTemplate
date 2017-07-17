@@ -3,7 +3,7 @@ title: Immediate TwitCare Action
 date: 2017-07-17 09:21:00 -07:00
 ---
 
-Excerpted from Daily Kos:
+Excerpted from [Daily Kos](https://www.dailykos.com/):
 
 " **Trumpcare** is up in **TWO WEEKS** in the **Senate**—and the final version is even worse than before. 
 
