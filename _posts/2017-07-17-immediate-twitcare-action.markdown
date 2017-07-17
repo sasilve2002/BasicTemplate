@@ -10,11 +10,17 @@ Excerpted from [Daily Kos](https://www.dailykos.com/):
 We need you to **call your Democratic Senators** and tell them to put up EVERY possible **obstruction** to Trumpcare. Fight to the end and never surrender. 
 
 **Call** 
+
 Senator Kamala D. **Harris**
+
 **(202) 224-3553** 
+
 and 
+
 Senator Dianne **Feinstein** 
+
 **(202) 224-3841**. 
+
 When you reach an aide, leave the following **message**: 
 
 Hello, my name is _________ calling from zip code _______. While I **thank you for opposing Trumpcare**, I am counting on you to use every tool, tactic and procedure at your disposal to **also delay and block** it as a long as possible. Thank you for your time.
