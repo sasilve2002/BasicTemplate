@@ -10,4 +10,4 @@ Excerpted from [Trent Lange, CA Clean Money](http://www.caclean.org/aboutus/tren
 
 **PLEASE SIGN the NEW emergency petition** to Senate President pro Tem Kevin de Leon and Senate Rules even if you've signed another — Tell them to **give AB 249 its author and hearing**!
 
-[Sign **New EMERGENCY petition** to save **AB 249**, the **California DISCLOSE Act**!](https://www.yesfairelections.org/petition/ab249-ccmaf.php?recipientId=vDIQcf26fXWZyeh2V211w1&email=greglpennington@aol.com&ms=newsletter-2017-07-17-new-author)
+[Sign **New EMERGENCY petition** to save **AB 249**, the **California DISCLOSE Act**!](https://www.yesfairelections.org/petition/ab249-ccmaf.php?recipientId=vDIQcf26fXWZyeh2V211w1&email=greglpennington@aol.com&ms=newsletter-2017-07-17-new-author) "
