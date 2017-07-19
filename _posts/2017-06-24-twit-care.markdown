@@ -1,6 +1,7 @@
 ---
 title: Twit Care Open Hearings
 date: 2017-06-24 18:11:00 -07:00
+published: false
 ---
 
 Excerpted from [**3NoTrump!**](http://www.3notrump.org/weekly-actions-june-20-2017/)
