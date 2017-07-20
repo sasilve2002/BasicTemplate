@@ -22,8 +22,3 @@ Allows **uncontrolled construction emissions** to pollute neighborhood air quali
 **SunCal**, a large **out-of-town developer**, is proposing an exclusive community of **luxury homes** on 188 acres of the **Oak Knoll Naval Hospital site** in the Oakland Hills. This is the second largest development ever proposed in Oakland and it needs to provide a benefit to the community we’ve created. 
 
 [**Sign our petition**](http://www.ebrrd.org/sign_our_petition_stop_suncal) and tell the Oakland City Council that this project should not go forward unless it addresses these issues.  "
-
- 
-
-
-1. 
