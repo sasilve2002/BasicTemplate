@@ -3,7 +3,7 @@ title: The New Disclose Act, AB 249
 date: 2017-07-20 06:28:00 -07:00
 ---
 
-Excerpted from [**[Trent Lange](www.YesFairElections.org)**](www.YesFairElections.org):
+Excerpted from [Trent Lange](http://www.yesfairelections.org/) :
 
 "  **Great news**!  Today, **AB 249** officially got its **new author**, as Senate President pro Tem **Kevin de Leon**'s Senate Rules Committee officially granted AB 249 its requested author -- Clean Money Champion Assemblymember **Kevin Mullin**! 
 
