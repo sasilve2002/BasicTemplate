@@ -14,4 +14,3 @@ AB 249 still has a long way to go, but this was an important victory, so thanks 
 **Your action**:
 
 Click here to sign the **latest petition**: [AB 249, the California DISCLOSE Act.](https://www.yesfairelections.org/petition/ab249.php?ms=facebook-post-2017-07-19)
-**
