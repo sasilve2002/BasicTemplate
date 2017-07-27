@@ -9,7 +9,7 @@ Excerpted from [CPD (Center for Popular Democracy)](https://populardemocracy.org
 
 **Today** is the Senate nomination **hearing** for “Wall Street Lawyer” Randal **Quarles** as the Federal Reserve vice chairman for supervision – what many consider to be the **top banking watchdog role** in the country. 
 
-We can’t let the Senate sneak through another corporate nominee **who won't stand up to banks and billionaires**.  "
+We can’t let the Senate sneak through another corporate nominee **who won't stand up to banks and billionaires**.  
 
-[Click here to tell them to vote NO](http://a.cpdaction.org/page/s/keep-wall-street-lawyer-out-of-the-fed) on Randal Quarles’ confirmation and keep greedy Wall Street insiders out of the Federal Reserve!
+[Click here to tell them to vote NO](http://a.cpdaction.org/page/s/keep-wall-street-lawyer-out-of-the-fed) on Randal Quarles’ confirmation and keep greedy Wall Street insiders out of the Federal Reserve!  "
 
