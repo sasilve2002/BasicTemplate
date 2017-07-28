@@ -1,6 +1,7 @@
 ---
 title: Flips in Oklahoma !
 date: 2017-07-12 17:39:00 -07:00
+published: false
 ---
 
 From **Daily Kos** Elections, June 11, 2017 :
