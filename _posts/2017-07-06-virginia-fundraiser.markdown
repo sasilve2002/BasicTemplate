@@ -1,6 +1,7 @@
 ---
 title: Virginia Fundraiser
 date: 2017-07-06 09:38:00 -07:00
+published: false
 ---
 
 Excerpted from our local **Sister District Project**:
