@@ -1,6 +1,7 @@
 ---
 title: The New Disclose Act, AB 249
 date: 2017-07-20 06:28:00 -07:00
+published: false
 ---
 
 Excerpted from [Trent Lange](http://www.yesfairelections.org/) :
