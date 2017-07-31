@@ -1,6 +1,7 @@
 ---
 title: Submit an Amendment to Twit(Don't)Care
 date: 2017-07-25 07:58:00 -07:00
+published: false
 ---
 
 Excerpted from [What Do I Do About Trump](http://whatdoidoabouttrump.com/) : 
