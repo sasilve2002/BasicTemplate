@@ -8,11 +8,11 @@ Our next **Nothing Rhymes with Orange meeting**:
 
 **Agenda**:
 
-Single Payer
+1)  Single Payer
 
-Virginia Flip Update
+2)  Virginia Flip Update
 
-Happy Thank You Postcards
+3)  Happy Thank You Postcards
 
 
 **Meeting**:
