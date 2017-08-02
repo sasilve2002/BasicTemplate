@@ -18,7 +18,9 @@ Happy Thank You Postcards
 **Meeting**:
 
 Tuesday
+
 August 8, 2017
+
 7:30 pm
 
 Please RSVP:  sasilve2002@gmail.com
