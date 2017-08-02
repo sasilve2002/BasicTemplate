@@ -10,7 +10,8 @@ Our next **Nothing Rhymes with Orange meeting**:
 
 1)  Single Payer
 
-2)  Virginia Flip Update
+2)  Karina Ryan from Sister District Project : 
+Virginia Flip
 
 3)  Happy Thank You Postcards
 
