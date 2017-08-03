@@ -8,13 +8,14 @@ Our next **Nothing Rhymes with Orange meeting**:
 
 **Agenda**:
 
-1)  Single Payer
+We're so happy to welcome **two guests**:  
 
-2)  Karina Ryan from Sister District Project : 
+1)  **Karina Ryan** from **Sister District Project** : 
 Virginia Flip
 
-3)  Happy Thank You Postcards
+2)  **Sue Bergman** from **Therapists for Single Payer**
 
+Awesome !
 
 **Meeting**:
 
