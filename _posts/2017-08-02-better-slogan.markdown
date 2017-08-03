@@ -9,6 +9,6 @@ This is your **homework** for the week:
 
 NY Times is having a **contest** for a **better Democratic Slogan** - 
 
-Your job is to **bring your best ideas** to Tuesday's meeting (or, if you can't make the meeting, email it for us.)
+Your job is to **bring your best ideas** to Tuesday's meeting (or, if you can't make the meeting, email it to us.)
 
 *Come on, we can do better than "A Better Deal" !*
