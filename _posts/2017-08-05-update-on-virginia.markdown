@@ -19,7 +19,9 @@ a pair of headphones/earbuds
 charging cords just in case
 Please prepare by reviewing:
 
-[https://www.kathyfordelegate.com/](https://www.kathyfordelegate.com/ [https://cherylturpinforvb.com/)](https://cherylturpinforvb.com/))
+[https://www.kathyfordelegate.com/](https://www.kathyfordelegate.com/
+
+ [https://cherylturpinforvb.com/)](https://cherylturpinforvb.com/))
 https://cherylturpinforvb.com/
 
 Phone banking party schedule (all Pacific Time):
