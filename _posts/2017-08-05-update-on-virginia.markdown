@@ -13,7 +13,7 @@ Please see a **list** of the phone banking **parties** below.
 
 To **RSVP** to any of the phone banks, fill out the requested information **below** and check off all the dates you would like to attend. The host will email you the full address plus other details in advance of the party. Space may be limited, but if one party fills up, we will be happy to help find you another to attend. 
 
-For questions, please email Patricia (pvjones10@gmail.com) or Rachel (sdp.ca.13.phonebank@gmail.com).
+For **questions**, please email **Patricia** (**pvjones10@gmail.com**) or **Rachel** (**sdp.ca.13.phonebank@gmail.com**)
 
 To view the **schedule** and **sign up**, [click on this **RSVP** Link](https://docs.google.com/forms/d/e/1FAIpQLSe_VTJYro3E3FgFrNNoKnc6AypEqo14Hjw14krn-L7aJwW6vA/viewform?link_id=4&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-upcoming-phone-banks-to-flip-virginia-state-house&email_referrer=upcoming-phone-banks-to-flip-virginia-state-house&email_subject=upcoming-phone-banks-to-flip-virginia-state-house)
 
