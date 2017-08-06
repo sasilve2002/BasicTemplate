@@ -51,4 +51,4 @@ Please prepare by reviewing:
 **September 3**, Sunday, 1:00pm - 4:00pm, Albany (Tran)
 
 
-These state elections are important for **fighting gerrymandering** in a key swing state such as **Virginia**!
+These state elections are important for **fighting gerrymandering** in a key swing state such as **Virginia**!  "
