@@ -20,10 +20,13 @@ To view the **schedule** and **sign up**, [click on this **RSVP** Link](https://
 
 **Please bring**:
 
-**a charged cell phone
-a charged laptop or tablet
-a pair of headphones/earbuds
-charging cords just in case**
+a **charged cell phone**
+
+a **charged laptop or tablet**
+
+a **pair of headphones/earbuds**
+
+**charging cords just in case**
 
 Please prepare by reviewing:
 
