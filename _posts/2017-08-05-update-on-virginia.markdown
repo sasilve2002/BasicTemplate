@@ -21,9 +21,7 @@ Please prepare by reviewing:
 
 [https://www.kathyfordelegate.com/](https://www.kathyfordelegate.com/
 
- [https://cherylturpinforvb.com/)](https://cherylturpinforvb.com/))
-https://cherylturpinforvb.com/
-
+[https://cherylturpinforvb.com/](https://cherylturpinforvb.com/)
 Phone banking party schedule (all Pacific Time):
 
 August 12, Saturday, 12:00pm – 3:00pm, El Cerrito- near DelNorte BART/easy access to I-80 (Turpin)
