@@ -5,7 +5,7 @@ date: 2017-08-05 17:19:00 -07:00
 
 Excerpted from Together We Will Albany-Berkeley:
 
-"  **TWW Albany-Berkeley** and **The Sister District Project of CA-13** and are working to support the campaigns of **Cheryl Turpin** and **Kathy Tran** in **November 2017 Virginia** house of delegates elections. Cheryl and Kathy are both amazing candidates---Cheryl is a high school teacher passionate about environmental issues, and Kathy came to this country as a refugee when she was just seven months old. Both of these candidates are fighting hard for our shared values, and they are so excited to have the support of volunteers like you.
+"  **TWW Albany-Berkeley** and **The Sister District Project of CA-13** are working to support the campaigns of **Cheryl Turpin** and **Kathy Tran** in **November 2017 Virginia** house of delegates elections. Cheryl and Kathy are both amazing candidates---Cheryl is a high school teacher passionate about environmental issues, and Kathy came to this country as a refugee when she was just seven months old. Both of these candidates are fighting hard for our shared values, and they are so excited to have the support of volunteers like you.
 
 We have set up **phone banking parties** every weekend until Election Day! Studies show at least **one extra vote for every 35 calls** with voters! And, we know each vote counts in our efforts to **flip** the **VA House** of Delegates **blue**! 
 
