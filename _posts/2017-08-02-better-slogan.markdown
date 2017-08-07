@@ -1,6 +1,7 @@
 ---
 title: Better Slogan
 date: 2017-08-02 11:26:00 -07:00
+published: false
 ---
 
 Excerpted from [NY Times OpEd, July 31, 2017](https://www.nytimes.com/2017/07/31/opinion/a-better-democratic-slogan-come-up-with-your-own.html)
