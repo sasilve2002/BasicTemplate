@@ -1,6 +1,7 @@
 ---
 title: Last Minute March
 date: 2017-08-05 07:34:00 -07:00
+published: false
 ---
 
 I know it's last minute, but [click here for the **March for Nuclear Abolition & Global Survival** 
