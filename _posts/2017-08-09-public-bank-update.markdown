@@ -7,11 +7,11 @@ From [**Friends of the Public Bank of Oakland**](https://friendsofpublicbankofoa
 
 **Next Deadline**:
 
-We come before the **City Council** on **Tuesday**, **September 19**, to make our case once again. Details about how to participate in that meeting will be available closer to the time. 
+"  We come before the **City Council** on **Tuesday**, **September 19**, to make our case once again. Details about how to participate in that meeting will be available closer to the time. 
 
 [Click here](https://friendsofpublicbankofoakland.org/petition/) to sign their **petition******.
 
 **Stop By Our Table**:
 
-**Grand Lake Farmers’ Market**: Every other Saturday from 9:00am to 2:00pm at Lake Park Ave, Oakland, CA 94610
+**Grand Lake Farmers’ Market**: Every other Saturday from 9:00am to 2:00pm at Lake Park Ave, Oakland, CA 94610  "
 
