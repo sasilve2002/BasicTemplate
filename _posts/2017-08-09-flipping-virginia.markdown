@@ -3,16 +3,16 @@ title: Flipping Virginia
 date: 2017-08-09 15:13:00 -07:00
 ---
 
-Thank you, Karina Ryan from the [Sister District Project](https://www.sisterdistrict.com/what-we-do/) for insightful information about the Virginia mid-term races.
+Thank you, **Karina Ryan** from the [**Sister District Project**](https://www.sisterdistrict.com/what-we-do/) for insightful information about the **Virginia** mid-term races.
 
-Here are our 2 upcoming flippables:
+Here are our two upcoming **flippables**:
 
-1 - Sister District for [Cheryl Turpin (VA-85)](https://www.sisterdistrict.com/vahod85)
+1 - Sister District for [**Cheryl Turpin** (VA-85)](https://www.sisterdistrict.com/vahod85)
 
 
-2 - Sister District for Kathy Tran (VA-42)[](https://www.sisterdistrict.com/vahod42)
+2 - Sister District for **Kathy Tran** (VA-42)[](https://www.sisterdistrict.com/vahod42)
 
-These are two of the many mid-term elections coming up in Virginia.  Mid-terms traditionally do not entice voters, so these races are an opportunity to get more Democrats to come out to vote. Take a few minutes to get to know these two candidates.  We have written postcards to get the vote out, and phone banking is currently happening:
+These are two of the many mid-term elections coming up in Virginia.  Mid-terms traditionally do not entice voters, so these races are an **opportunity** to get more **Democrats** to come out to vote. Take a few minutes to get to know these two candidates.  We have written **postcards** to get the vote out, and **phone banking** is currently happening:
 
 To **RSVP** to any of the phone banks, fill out the requested information **below** and check off all the dates you would like to attend. The host will email you the full address plus other details in advance of the party. Space may be limited, but if one party fills up, we will be happy to help find you another to attend. 
 
