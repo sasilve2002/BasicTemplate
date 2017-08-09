@@ -13,4 +13,4 @@ Thoroughly engrossing meeting with **Sue Bergman, Chair of Health Care for All -
 
 Making this happen in **California** will be a **beacon** for the rest of the country.
 
-*We can do this* !
+***We can do this*** !
