@@ -9,7 +9,7 @@ Thoroughly engrossing meeting with **Sue Bergman, Chair of Health Care for All -
 
 [Click here for access to **flyers**](http://www.healthycaliforniaact.org/resources/) and other useful **information**.
 
-**Pass this along** to your job, neighbors and other groups you're involved with.
+**Pass this along** to your **job, neighbors and other groups** you're involved with.
 
 Making this happen in **California** will be a **beacon** for the rest of the country.
 
