@@ -1,6 +1,7 @@
 ---
 title: Update on Virginia
 date: 2017-08-05 17:19:00 -07:00
+published: false
 ---
 
 Excerpted from Together We Will Albany-Berkeley:
