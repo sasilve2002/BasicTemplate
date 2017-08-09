@@ -9,7 +9,7 @@ From [**Friends of the Public Bank of Oakland**](https://friendsofpublicbankofoa
 
 "  We come before the **City Council** on **Tuesday**, **September 19**, to make our case once again. Details about how to participate in that meeting will be available closer to the time. 
 
-[Click here](https://friendsofpublicbankofoakland.org/petition/) to sign their **petition******.
+[Click here](https://friendsofpublicbankofoakland.org/petition/) to sign their **petition**.
 
 **Stop By Our Table**:
 
