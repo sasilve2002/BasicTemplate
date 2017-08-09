@@ -13,4 +13,6 @@ From [**Friends of the Public Bank of Oakland**](https://friendsofpublicbankofoa
 
 **Grand Lake Farmers’ Market**: Every other Saturday from 9:00am to 2:00pm at Lake Park Ave, Oakland, CA 94610  "
 
-[Click here](https://friendsofpublicbankofoakland.org/petition/) to sign their **petition**.
+[Click here](https://friendsofpublicbankofoakland.org/petition/) to sign their **petition**
+
+WHAT THE HECK IS A PUBLIC BANK?  Click here for an in-depth look.
