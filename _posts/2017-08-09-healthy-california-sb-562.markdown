@@ -7,6 +7,8 @@ Thoroughly engrossing meeting with **Sue Bergman, Chair of Health Care for All -
  
 [Click here for **Questions & Answers**](http://www.healthycaliforniaact.org/wp-content/uploads/SB-562-QA-Flyer.pdf) about the **Healthy California Act, S.B. 562**. 
 
+[Click here for access to flyers](http://www.healthycaliforniaact.org/resources/).
+
 **Pass this along** to your job, neighbors and other groups you're involved with.
 
 Making this happen in **California** will be a **beacon** for the rest of the country.
