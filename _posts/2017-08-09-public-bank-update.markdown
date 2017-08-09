@@ -9,7 +9,7 @@ From [**Friends of the Public Bank of Oakland**](https://friendsofpublicbankofoa
 
 "  We come before the **City Council** on **Tuesday**, **September 19**, to make our case once again. Details about how to participate in that meeting will be available closer to the time. 
 
-**Stop By Our Table**:
+**Stop By Their Table**:
 
 **Grand Lake Farmers’ Market**: Every other Saturday from 9:00am to 2:00pm at Lake Park Ave, Oakland, CA 94610  "
 
