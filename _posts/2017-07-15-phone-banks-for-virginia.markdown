@@ -1,6 +1,7 @@
 ---
 title: Phone-Banks for Virginia
 date: 2017-07-15 12:20:00 -07:00
+published: false
 ---
 
 [Click here for the link to **Sister District Project's** information and directions on **phone-banking** for **Cheryl Turpin**](http://mailchi.mp/sisterdistrict/phonebanking-for-cheryl?e=16b55cad2c).  Sister District Project is organizing phone-banks weekly, so you can join future banks and/or do this from your own phone.
