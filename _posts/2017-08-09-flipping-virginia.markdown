@@ -8,7 +8,7 @@ Thank you, Karina Ryan from the [Sister District Project](https://www.sisterdist
 Here are our 2 upcoming flippables:
 
 1 - Sister District for Cheryl Turpin (VA-85)
-https://www.sisterdistrict.com/vahod85
+
 
 2 - Sister District for Kathy Tran (VA-42)https://www.sisterdistrict.com/vahod42
 
