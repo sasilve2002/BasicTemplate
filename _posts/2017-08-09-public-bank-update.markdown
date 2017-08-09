@@ -15,4 +15,4 @@ From [**Friends of the Public Bank of Oakland**](https://friendsofpublicbankofoa
 
 [Click here](https://friendsofpublicbankofoakland.org/petition/) to sign their **petition**
 
-WHAT THE HECK IS A PUBLIC BANK?  Click here for an in-depth look.
+WHAT THE HECK IS A PUBLIC BANK?  [Click here for an in-depth look](https://friendsofpublicbankofoakland.org/wp-content/uploads/2017/02/pb-oakland-3-11-16.pdf).
