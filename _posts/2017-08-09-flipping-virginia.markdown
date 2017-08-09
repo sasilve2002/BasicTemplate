@@ -10,7 +10,7 @@ Here are our 2 upcoming flippables:
 1 - Sister District for [Cheryl Turpin (VA-85)](https://www.sisterdistrict.com/vahod85)
 
 
-2 - Sister District for Kathy Tran (VA-42)https://www.sisterdistrict.com/vahod42
+2 - Sister District for Kathy Tran (VA-42)[](https://www.sisterdistrict.com/vahod42)
 
 These are two of the many mid-term elections coming up in Virginia.  Mid-terms traditionally do not entice voters, so these races are an opportunity to get more Democrats to come out to vote. Take a few minutes to get to know these two candidates.  We have written postcards to get the vote out, and phone banking is currently happening:
 
