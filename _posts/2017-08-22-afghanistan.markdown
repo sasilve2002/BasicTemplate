@@ -22,8 +22,10 @@ I was deployed to Afghanistan in 2003 as a medic with the 82nd Airborne. And Iâ€
 In solidarity,
 
 **Perry O'Brien
+
 Afghanistan veteran, U.S. Army
-Common Defense**
+
+Common Defense**  "
 
 
 
