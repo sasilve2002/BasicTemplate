@@ -5,7 +5,7 @@ date: 2017-08-22 08:01:00 -07:00
 
 Excerpted from [**Common Defense PAC**](http://www.commondefensepac.org/) :
 
-" [Share your thoughts on Trump's foreign policy and the war in Afghanistan](http://go.commondefensepac.com/page/s/afghanistan-survey?source=em20170822):
+" [**Share** your thoughts on Trump's foreign policy and the war in **Afghanistan**](http://go.commondefensepac.com/page/s/afghanistan-survey?source=em20170822):
 
 Late last night, **Trump** stood in front of a room full of troops to **congratulate himself** on continuing the **war in Afghanistan**. After nearly **16 years of war** — a war that has claimed more than **100,000 lives** and cost nearly **$1 trillion dollars** — it is vital that we speak out and demand real answers, not empty rhetoric.
 
