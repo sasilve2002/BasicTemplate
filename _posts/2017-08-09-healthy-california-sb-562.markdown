@@ -1,6 +1,7 @@
 ---
 title: Healthy California S.B. 562
 date: 2017-08-09 14:51:00 -07:00
+published: false
 ---
 
 Thoroughly engrossing meeting with **Sue Bergman, Chair of Health Care for All - Alameda County**. 
