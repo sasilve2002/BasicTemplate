@@ -13,7 +13,8 @@ We already have thousands of US service members still deployed in Afghanistan wi
 
 Common Defense is ready to address this, but **we want your input** first. Will you share your thoughts on Trump’s announcement and the war in Afghanistan with us?
 
-[Share your story](http://go.commondefensepac.com/page/s/afghanistan-survey?source=em20170822) »
+[**Click here to Share your story**](http://go.commondefensepac.com/page/s/afghanistan-survey?source=em20170822) »
+
 This is a crucial moment. Regardless of what your thoughts are on the war, Trump’s decisions could put thousands of U.S. lives on the line, and your responses will help shape how Common Defense addresses this. To do that, I need you to share your opinion on the wars in Afghanistan right now.
 
 I was deployed to Afghanistan in 2003 as a medic with the 82nd Airborne. And I’ve been very vocal about about my thoughts on that war because that’s a part of my duty as a citizen of the United States. That’s what democracy looks like, and I thank you for sharing your thoughts with us today.
