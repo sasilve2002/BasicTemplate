@@ -3,7 +3,7 @@ title: Afghanistan
 date: 2017-08-22 08:01:00 -07:00
 ---
 
-Excerpted from [Common Defense PAC](http://www.commondefensepac.org/) :
+Excerpted from [**Common Defense PAC**](http://www.commondefensepac.org/) :
 
 " [Share your thoughts on Trump's foreign policy and the war in Afghanistan](http://go.commondefensepac.com/page/s/afghanistan-survey?source=em20170822):
 
