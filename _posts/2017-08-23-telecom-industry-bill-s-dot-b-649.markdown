@@ -10,7 +10,7 @@ Excerpted from From the [**California Alliance for Safer Technology**](http://ww
 
 "  [**SB 649**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB649) is a controversial bill being heard in the [**Assembly Appropriations Committee**](http://apro.assembly.ca.gov/) on **August 23rd**. While the telecom industry claims this is an infrastructure bill that will provide wireless users greater coverage….. 270 cities and 45 counties remain strongly opposed to the bill.  "
 
-Here's a sample script to **EMAIL**(thank you, Allegra :)
+Here's a sample script to **[EMAIL](https://lcmspubcontact.lc.ca.gov/PublicLCMS/ContactPopup.php?district=AD18)**(thank you, Allegra :)
 
 Dear Representative Bonta,
 
