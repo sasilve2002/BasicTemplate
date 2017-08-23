@@ -13,6 +13,6 @@ That’s why we, [**Representatives Bonnie Watson Coleman**](https://watsoncolem
 
 More than **100 of our Democratic colleagues** have **co-sponsored** this resolution, and already more than 131,000 fellow MoveOn members have signed on in support.
 
-Can you add your name now so that we can deliver your signature and double down on our campaign to censure Trump as soon as Congress is back in session?
+[Can you add your name](https://petitions.moveon.org/sign/censure-trump?source=s.fwd&r_by=5557365) now so that we can deliver your signature and double down on our campaign to censure Trump as soon as Congress is back in session?
 
 **Together, we’ll speak in one, powerful voice**.  "
