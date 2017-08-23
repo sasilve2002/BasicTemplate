@@ -3,8 +3,8 @@ title: Censure Donald Trump
 date: 2017-08-22 19:16:00 -07:00
 ---
 
-https://petitions.moveon.org/sign/censure-trump?source=s.fwd&r_by=5557365
-Add your name: Support a congressional resolution to formally censure Donald Trump.
+Excerpted from [MoveOn.org](https://front.moveon.org/) :
+Add your name: [Support a congressional resolution to formally censure Donald Trump](https://petitions.moveon.org/sign/censure-trump?source=s.fwd&r_by=5557365).
 
 Dear MoveOn member, 
 
