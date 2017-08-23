@@ -11,7 +11,7 @@ It's one of those things that sounds good - we all want better wireless coverage
 Excerpted from From the [California Alliance for Safer Technology](http://www.ca4safertech.com/will-assembly-member-gonzalez-fletcher-oppose-sb-649-risk-pristine-environmental-voting-record-downgraded-sierra-club-league-conservation-voters/)  :
 
 
-"  SB 649 is a controversial bill being heard in the Assembly Appropriations Committee on August 23rd. While the telecom industry claims this is an infrastructure bill that will provide wireless users greater coverage….. 270 cities and 45 counties remain strongly opposed to the bill.  "
+"  [SB 649](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB649) is a controversial bill being heard in the Assembly Appropriations Committee on August 23rd. While the telecom industry claims this is an infrastructure bill that will provide wireless users greater coverage….. 270 cities and 45 counties remain strongly opposed to the bill.  "
 
 Dear Representative Bonta,
 
