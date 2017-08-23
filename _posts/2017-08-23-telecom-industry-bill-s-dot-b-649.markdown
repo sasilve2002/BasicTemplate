@@ -18,7 +18,7 @@ I am very concerned about the impact of Senate Bill 649 on our state. This bill 
 
 The proliferation of cell phone towers is also harmful to humans, animals and the environment. It will dramatically increase the amount of radiation being released into the air.
 
-{If you like, insert your personal story here.}
+**{If you like, insert your personal story here.}**
 
 Please oppose Senate Bill #649. Thank you for your consideration.
 
