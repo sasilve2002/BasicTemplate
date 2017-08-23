@@ -8,7 +8,7 @@ From [The California Alliance for Safer Technology
 
 It's one of those things that sounds good - we all want better wireless coverage - but the Sierra Club and League of Conservation Voters are against it.
 
-Excerpted from From [The California Alliance for Safer Technology](http://www.ca4safertech.com/will-assembly-member-gonzalez-fletcher-oppose-sb-649-risk-pristine-environmental-voting-record-downgraded-sierra-club-league-conservation-voters/) :
+Excerpted from From [The California Alliance for Safer Technology](http://www.ca4safertech.com/will-assembly-member-gonzalez-fletcher-oppose-sb-649-risk-pristine-environmental-voting-record-downgraded-sierra-club-league-conservation-voters/)  :
 
 
 "  SB 649 is a controversial bill being heard in the Assembly Appropriations Committee on August 23rd. While the telecom industry claims this is an infrastructure bill that will provide wireless users greater coverage….. 270 cities and 45 counties remain strongly opposed to the bill.* 
