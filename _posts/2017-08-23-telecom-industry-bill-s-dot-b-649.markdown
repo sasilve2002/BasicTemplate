@@ -3,7 +3,7 @@ title: Telecom Industry Bill S.B.649
 date: 2017-08-23 14:03:00 -07:00
 ---
 
-**It's one of those things that sounds good - we all want better wireless coverage - but the Sierra Club and League of Conservation Voters are against it.****
+*It's one of those things that sounds good - we all want better wireless coverage - but the Sierra Club and League of Conservation Voters are against it.*****
 
 Excerpted from From the [California Alliance for Safer Technology](http://www.ca4safertech.com/will-assembly-member-gonzalez-fletcher-oppose-sb-649-risk-pristine-environmental-voting-record-downgraded-sierra-club-league-conservation-voters/)  :
 
