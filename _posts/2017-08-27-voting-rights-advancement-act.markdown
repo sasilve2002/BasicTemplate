@@ -12,4 +12,4 @@ Excerpted from [**Common Cause**](http://www.commoncause.org/issues/voting-and-e
 
 We're also fighting **state-by-state against voter ID requirements** that effectively deny voting rights to students, minorities, the elderly and the disabled. We're pushing for **additional registration and voting days and longer hours, Election Day registration, additional voting locations and more opportunities to vote by mail**.
 
-[Click here for your action.]([Voting Rights Advancement Act](https://www.congress.gov/bill/115th-congress/house-bill/2978))
+[Click here for your action](http://www.commoncause.org/issues/voting-and-elections/voting-rights/).
