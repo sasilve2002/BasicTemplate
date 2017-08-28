@@ -1,6 +1,7 @@
 ---
 title: Public Bank Update
 date: 2017-08-09 15:44:00 -07:00
+published: false
 ---
 
 From [**Friends of the Public Bank of Oakland**](https://friendsofpublicbankofoakland.org/next-meeting-and-other-events/):
