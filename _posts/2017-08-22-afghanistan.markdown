@@ -1,6 +1,7 @@
 ---
 title: Afghanistan
 date: 2017-08-22 08:01:00 -07:00
+published: false
 ---
 
 Excerpted from [**Common Defense PAC**](http://www.commondefensepac.org/) :
