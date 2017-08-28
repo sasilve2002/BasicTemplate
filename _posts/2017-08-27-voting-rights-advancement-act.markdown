@@ -8,7 +8,7 @@ Excerpted from [**Common Cause**](http://www.commoncause.org/issues/voting-and-e
 
 "  Passed repeatedly since the 1960s, the **[Voting Rights Act](https://www.congress.gov/bill/115th-congress/house-bill/2978)** is a vital safeguard to the right to vote. But in 2013, the Supreme Court said major portions of the law are unconstitutional and can't be enforced unless Congress rewrites them.
 
-**Common Cause** is working to **restore** the law ([H.R.2978 - Voting Rights Advancement Act of 2017](https://www.congress.gov/bill/115th-congress/house-bill/2978)) and block new barriers to registration and voting BEFORE they take effect. 
+**Common Cause** is working to **restore** the law ([**H.R.2978 - Voting Rights Advancement Act of 2017**](https://www.congress.gov/bill/115th-congress/house-bill/2978)) and block new barriers to registration and voting BEFORE they take effect. 
 
 We're also fighting **state-by-state against voter ID requirements** that effectively deny voting rights to students, minorities, the elderly and the disabled. We're pushing for **additional registration and voting days and longer hours, Election Day registration, additional voting locations and more opportunities to vote by mail**.  "
 
