@@ -9,5 +9,5 @@ Excerpted from [**Norcal Resist**](https://www.facebook.com/NorCalResist/)
 
 [**Click here to register**] and for more information (https://www.eventbrite.com/e/rock-the-congress-uniting-progressives-to-win-in-2018-tickets-36649027227).
 
-All are welcome to attend.  "
+**All are welcome** to attend.  "
 
