@@ -3,7 +3,7 @@ title: Rock the Congress
 date: 2017-08-29 18:38:00 -07:00
 ---
 
-Excerpted from [Norcal Resist](https://www.facebook.com/NorCalResist/) (http://norcalresilience.org/event/resiliency-face-resistance/):
+Excerpted from [Norcal Resist](https://www.facebook.com/NorCalResist/) 
 
 "  There are still spots open for the Rock the Congress conference on 9/9 at College of Marin. There will be a focus on collaboration between groups looking towards the 2018 election, as well as some fantastic training content.
 
