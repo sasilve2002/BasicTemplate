@@ -11,8 +11,6 @@ date: 2017-09-01 07:34:00 -07:00
 
 By Sandhya @ 07/25/17 
 
-**The International Day of Peace** (“Peace Day”) is observed around the world each year on **21 September**. Established in 1981 by unanimous **United Nations** resolution, Peace Day provides a globally shared date for **all humanity to commit to Peace** above all differences and to contribute to building a **Culture of Peace**.
-
 **2017 Worldwide Theme**: **Together for Peace: Respect, Safety, and Dignity for All**
 
 **The Oakland Peace Center**, with **St. Mary’s Center**, will host a community gathering on **September 21** :
@@ -25,4 +23,4 @@ By Sandhya @ 07/25/17
 
 Each year the International Day of Peace is observed around the world on 21 September. The General Assembly has declared this as a day devoted to strengthening the ideals of peace, both within and among all nations and peoples.
 
-The theme for 2017 is “Together for Peace: Respect, Safety and Dignity for All.”
+The theme for 2017 is “**Together for Peace: Respect, Safety and Dignity for All**.”
