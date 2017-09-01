@@ -5,7 +5,7 @@ date: 2017-09-01 07:34:00 -07:00
 
 **International Day of Peace Events**:
 
-[Excerpted from the Oakland Peace Center](http://oaklandpeacecenter.org/news/september-17-peace-sunday) :
+[Excerpted from the **Oakland Peace Center**](http://oaklandpeacecenter.org/news/september-17-peace-sunday) :
 
 "  SEPTEMBER 17–PEACE SUNDAY!
 By Sandhya @ 07/25/17 in News
