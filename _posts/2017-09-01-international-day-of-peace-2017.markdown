@@ -7,7 +7,7 @@ date: 2017-09-01 07:34:00 -07:00
 
 [Excerpted from the **Oakland Peace Center**](http://oaklandpeacecenter.org/news/september-17-peace-sunday) :
 
-"  SEPTEMBER 17–PEACE SUNDAY!
+"  **SEPTEMBER 17–PEACE SUNDAY**!
 By Sandhya @ 07/25/17 in News
 peace dayThe International Day of Peace (“Peace Day”) is observed around the world each year on 21 September. Established in 1981 by unanimous United Nations resolution, Peace Day provides a globally shared date for all humanity to commit to Peace above all differences and to contribute to building a Culture of Peace.
 2017 Worldwide Theme: Together for Peace: Respect, Safety, and Dignity for All
