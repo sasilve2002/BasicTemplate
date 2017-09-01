@@ -19,9 +19,9 @@ At the Bandshell of Golden Gate Park, this event will demonstrate how peaceful y
 
 
 
-**(2)** - [Excerpted from the **Oakland Peace Center**](http://oaklandpeacecenter.org/news/september-17-peace-sunday) :
+[Excerpted from the **Oakland Peace Center**](http://oaklandpeacecenter.org/news/september-17-peace-sunday) :
 
-"  **SEPTEMBER 17–PEACE SUNDAY**!
+**(2)** - "  **SEPTEMBER 17–PEACE SUNDAY**!
 
 By Sandhya @ 07/25/17 
 
