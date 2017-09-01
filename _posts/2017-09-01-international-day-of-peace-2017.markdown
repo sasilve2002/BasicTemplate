@@ -17,7 +17,7 @@ By Sandhya @ 07/25/17
 
 **The Oakland Peace Center**, with **St. Mary’s Center**, will host a community gathering on **September 21** :
 
-In solidarity with those celebrating Peace Day all over the world, the Oakland Peace Center invites houses of worship to participate in Peace Sunday on September 17, 2017. [**Click HERE to sign up**](https://docs.google.com/forms/d/e/1FAIpQLSf5eiHIQUltuu9BHvgIZZWFq7lhsysQnELnvL3lrH7hzzS4Ew/viewform)!
+"   In solidarity with those celebrating Peace Day all over the world, the Oakland Peace Center invites houses of worship to participate in Peace Sunday on September 17, 2017. [**Click HERE to sign up**](https://docs.google.com/forms/d/e/1FAIpQLSf5eiHIQUltuu9BHvgIZZWFq7lhsysQnELnvL3lrH7hzzS4Ew/viewform)!   "
 
 [**International Day of Peace 2017**](http://www.un.org/en/events/peaceday/)
 
