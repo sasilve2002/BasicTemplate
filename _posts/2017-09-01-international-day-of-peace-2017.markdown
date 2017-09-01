@@ -5,7 +5,7 @@ date: 2017-09-01 07:34:00 -07:00
 
 **Two Bay Area International Day of Peace Events**:
 
-[Peace in the Park Festival, Golden Gate Park](http://sf.funcheap.com/peace-park-festival-golden-gate-park/) :
+[**Peace in the Park Festival, Golden Gate Park**](http://sf.funcheap.com/peace-park-festival-golden-gate-park/) :
 
 
 
