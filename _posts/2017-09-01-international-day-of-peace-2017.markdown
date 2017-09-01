@@ -5,7 +5,8 @@ date: 2017-09-01 07:34:00 -07:00
 
 International Day of Peace Events:
 
-[2017 “Peace In The Park” Festival | Golden Gate Park](http://sf.funcheap.com/peace-park-festival-golden-gate-park/)
+2017 “Peace In The Park” Festival | Golden Gate Park 
+http://sf.funcheap.com/peace-park-festival-golden-gate-park/
 Saturday, September 23, 2017 - All Day | Cost: FREE	
 Golden Gate Park | 1690 John F Kennedy Dr., San Francisco, CA
 
