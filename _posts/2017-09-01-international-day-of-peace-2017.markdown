@@ -19,7 +19,7 @@ By Sandhya @ 07/25/17
 
 In solidarity with those celebrating Peace Day all over the world, the Oakland Peace Center invites houses of worship to participate in Peace Sunday on September 17, 2017. [**Click HERE to sign up**](https://docs.google.com/forms/d/e/1FAIpQLSf5eiHIQUltuu9BHvgIZZWFq7lhsysQnELnvL3lrH7hzzS4Ew/viewform)!
 
-[International Day of Peace 2017](http://www.un.org/en/events/peaceday/)
+[**International Day of Peace 2017**](http://www.un.org/en/events/peaceday/)
 
 [Excerpted from the UN](http://www.un.org/en/events/peaceday/) :
 Each year the International Day of Peace is observed around the world on 21 September. The General Assembly has declared this as a day devoted to strengthening the ideals of peace, both within and among all nations and peoples.
