@@ -21,7 +21,7 @@ In solidarity with those celebrating Peace Day all over the world, the Oakland P
 
 [**International Day of Peace 2017**](http://www.un.org/en/events/peaceday/)
 
-[Excerpted from the UN](http://www.un.org/en/events/peaceday/) :
+[**Excerpted from the UN**](http://www.un.org/en/events/peaceday/) :
 Each year the International Day of Peace is observed around the world on 21 September. The General Assembly has declared this as a day devoted to strengthening the ideals of peace, both within and among all nations and peoples.
 
 The theme for 2017 is “Together for Peace: Respect, Safety and Dignity for All.”
