@@ -27,6 +27,6 @@ Golden Gate Park | 1690 John F Kennedy Dr., San Francisco, CA
 
 
 
-International Day of Peace 2017
-http://internationaldayofpeace.org/
+[International Day of Peace 2017](http://internationaldayofpeace.org/)
+
 
