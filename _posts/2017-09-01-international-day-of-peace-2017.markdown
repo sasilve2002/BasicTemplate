@@ -9,8 +9,8 @@ date: 2017-09-01 07:34:00 -07:00
 
 Excerpted from [**Fun$CheapSF**](http://sf.funcheap.com/peace-park-festival-golden-gate-park/) :
 
-"  Saturday, September 23, 2017 | 11 am to 6 pm
-Golden Gate Park Bandshell, near de Young Museum
+"  **Saturday, September 23, 2017** | 11 am to 6 pm
+**Golden Gate Park Bandshell**, near de Young Museum
 **FREE**, but an [**RSVP is required**](https://www.eventbrite.com/e/5th-annual-peace-in-the-park-tickets-33023157152).
 
 The festival typically features local musicians and visual artists, Tai Chi, yoga, seminars, kids activities, and meditation.
