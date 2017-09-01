@@ -18,6 +18,7 @@ By Sandhya @ 07/25/17
 
 In solidarity with those celebrating Peace Day all over the world, the Oakland Peace Center invites houses of worship to participate in Peace Sunday on September 17, 2017. [Click HERE to sign up](https://docs.google.com/forms/d/e/1FAIpQLSf5eiHIQUltuu9BHvgIZZWFq7lhsysQnELnvL3lrH7hzzS4Ew/viewform)!
 
+Excerpted from [Fun$CheapSF](2017 “Peace In The Park” Festival | Golden Gate Park](http://sf.funcheap.com/peace-park-festival-golden-gate-park/) :
 
 [2017 “Peace In The Park” Festival | Golden Gate Park](http://sf.funcheap.com/peace-park-festival-golden-gate-park/) 
 
