@@ -17,9 +17,9 @@ The festival typically features local musicians and visual artists, Tai Chi, yog
 
 At the Bandshell of Golden Gate Park, this event will demonstrate how peaceful you can be even while living in a fast-paced urban environment.  "
 
-**(2)** - "  **SEPTEMBER 17–PEACE SUNDAY**!
+**(2)** - "  **[SEPTEMBER 17–PEACE SUNDAY](http://oaklandpeacecenter.org/news/september-17-peace-sunday)**!
 
-[Excerpted from the **Oakland Peace Center**](http://oaklandpeacecenter.org/news/september-17-peace-sunday) :
+[Excerpted from the **Oakland Peace Center**]() :
 
 By Sandhya @ 07/25/17 
 
