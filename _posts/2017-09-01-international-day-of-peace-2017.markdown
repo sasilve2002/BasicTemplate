@@ -33,6 +33,6 @@ By Sandhya @ 07/25/17
 
 [**Excerpted from the UN**](http://www.un.org/en/events/peaceday/) :
 
-Each year the International Day of Peace is observed around the world on 21 September. The General Assembly has declared this as a day devoted to strengthening the ideals of peace, both within and among all nations and peoples.
+"   Each year the International Day of Peace is observed around the world on 21 September. The General Assembly has declared this as a day devoted to strengthening the ideals of peace, both within and among all nations and peoples.
 
-The theme for 2017 is “**Together for Peace: Respect, Safety and Dignity for All**.”
+The theme for 2017 is “**Together for Peace: Respect, Safety and Dignity for All**.”  "
