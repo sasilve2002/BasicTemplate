@@ -3,6 +3,7 @@ title: "$$$ : Harvey or Wall ?"
 date: 2017-09-02 16:53:00 -07:00
 ---
 
+[Excerpted from the Sierra Club](http://www.sierraclub.org/borderlands) :
 Tell Congress: No Trump Wall!
 Tell Congress not to waste billions on ineffective, harmful border walls!
 
