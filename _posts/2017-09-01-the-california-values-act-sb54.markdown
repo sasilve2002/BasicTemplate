@@ -3,8 +3,8 @@ title: The California Values Act SB54
 date: 2017-09-01 18:14:00 -07:00
 ---
 
-[Excerpted from Mary Lizardi, Organizer
-Courage Campaign
+[Excerpted from **Mary Lizardi, Organizer
+Courage Campaign**
 (510) 690-5379](https://www.couragecampaign.org/) 
 
 "  I'm reaching out to our most courageous members to get your help on the CA Values Act (SB 54) -- a key resistance bill that would help protect California’s communities from Trump’s mass deportation agenda. The California legislative session is nearly over, and we need a HUGE final push to get SB 54 through the Assembly but we can't do it without you.
