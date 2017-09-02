@@ -1,6 +1,7 @@
 ---
 title: Censure Donald Trump
 date: 2017-08-22 19:16:00 -07:00
+published: false
 ---
 
 Excerpted from [**MoveOn.org**](https://front.moveon.org/) :
