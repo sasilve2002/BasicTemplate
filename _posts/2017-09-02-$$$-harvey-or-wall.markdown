@@ -6,6 +6,7 @@ date: 2017-09-02 16:53:00 -07:00
 [Excerpted from the **Sierra Club**](http://www.sierraclub.org/borderlands) :
 
 "  Tell Congress: **No Trump Wall**!
+
 Tell Congress not to waste billions on ineffective, harmful border walls!
 
 Donald Trump will ask Congress to appropriate tens of billions (yes, that is billion with a B) of dollars to build hundreds of miles of new border walls, even though the walls that are already there have done tremendous damage to borderlands ecosystems and communities and do little to improve security. Tell Congress to just say NO!
