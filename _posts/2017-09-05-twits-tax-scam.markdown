@@ -3,7 +3,7 @@ title: Twit's Tax Scam
 date: 2017-09-05 05:07:00 -07:00
 ---
 
-Indivisible explains Twitter Twit's deplorable tax scam and has a couple of actions for us:
+**Indivisible** explains Twitter **Twit's** deplorable **tax scam** and has a couple of **actions** for us.  Our reps need to hear from us:
 
 Excerpted from [Indivisible](http://indivisible.org/) :
 
