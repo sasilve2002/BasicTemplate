@@ -7,7 +7,7 @@ Excerpted from [**Indivisible**](http://indivisible.org/) :
 
 Even though **Feinstein & Harris** are fighting Twit's budget, they need a massive show of support.  
 
-**Indivisible** explains Twitter **Twit's** deplorable **tax scam** and has a couple of **actions** for us.  [**Our reps need to hear from us**](https://www.trumptaxscam.org/) in order to fortify their mission.  
+**Indivisible** explains Twitter **Twit's** deplorable **tax scam** and has a couple of [actions](https://www.trumptaxscam.org/) for us.  [**Our reps need to hear from us**](https://www.trumptaxscam.org/) in order to fortify their mission.  
 
 "  [Twit's] tax plan is a boon for corporations and the wealthy.  And a bust for families. Put simply, **this plan is a scam**.
 
