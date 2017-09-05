@@ -5,9 +5,7 @@ date: 2017-09-05 05:07:00 -07:00
 
 Excerpted from [**Indivisible**](http://indivisible.org/) :
 
-Even though Feinstein & Harris are fighting Twit's budget, they need a massive show of support to fortify their position.  
-
-
+Even though **Feinstein & Harris** are fighting Twit's budget, they need a massive show of support.  
 
 **Indivisible** explains Twitter **Twit's** deplorable **tax scam** and has a couple of **actions** for us.  [**Our reps need to hear from us**](https://www.trumptaxscam.org/) in order to fortify their mission.  
 
