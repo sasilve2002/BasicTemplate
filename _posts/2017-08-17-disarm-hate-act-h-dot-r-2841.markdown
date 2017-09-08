@@ -1,6 +1,7 @@
 ---
 title: Disarm Hate Act (H.R. 2841)
 date: 2017-08-17 10:23:00 -07:00
+published: false
 ---
 
 Excerpted from [issuevoter.org](http://issuevoter.org/):
