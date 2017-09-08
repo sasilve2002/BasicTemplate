@@ -1,6 +1,7 @@
 ---
 title: Exquisite Poem
 date: 2017-08-18 07:24:00 -07:00
+published: false
 ---
 
 Excerpted from [**Postcards from Kate**](https://www.postcardsfromkate.org/) :
