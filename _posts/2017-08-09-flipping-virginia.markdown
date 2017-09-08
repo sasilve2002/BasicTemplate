@@ -1,6 +1,7 @@
 ---
 title: Flipping Virginia
 date: 2017-08-09 15:13:00 -07:00
+published: false
 ---
 
 Thank you, **Karina Ryan** from the [**Sister District Project**](https://www.sisterdistrict.com/what-we-do/) for insightful information about the **Virginia** mid-term races.
