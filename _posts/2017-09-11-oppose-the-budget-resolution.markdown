@@ -9,5 +9,5 @@ Excerpted from [Indivisible](https://www.indivisibleguide.com/) :
 
 [Click here](https://www.indivisibleguide.com/resource/trump-tax-scam-step-1-budget-resolution/) to better understand FY18 $$,
  
-[then scroll down that page for our scripts](https://www.indivisibleguide.com/resource/trump-tax-scam-step-1-budget-resolution/) .
+[then **scroll down** that page for our **scripts**](https://www.indivisibleguide.com/resource/trump-tax-scam-step-1-budget-resolution/) .
 
