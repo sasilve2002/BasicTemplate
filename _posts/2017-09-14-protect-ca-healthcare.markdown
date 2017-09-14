@@ -24,3 +24,7 @@ Sacramento, CA 94249-0018
 Tel: (916) 319-2018
 Fax: (916) 319-2118
 
+Script:
+
+My name is ________ and I'm calling from _________ to ask **Assemblymember Bonta** to please support **SB 133 (Hernandez) **and **AB 156 (Wood)**.  
+The Administration's efforts to attack the Affordable Care Act, has led Anthem Blue Cross and Cigna to abandon some regions in our state's individual health insurance market, leaving over 300,000 Californians in need of finding new health plans.  SB 133 and AB 156 will help protect consumers from these attacks.  Thank you.
