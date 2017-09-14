@@ -1,6 +1,7 @@
 ---
 title: Rock the Congress
 date: 2017-08-29 18:38:00 -07:00
+published: false
 ---
 
 Excerpted from [**Norcal Resist**](https://www.facebook.com/NorCalResist/) 
