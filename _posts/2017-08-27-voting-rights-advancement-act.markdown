@@ -1,6 +1,7 @@
 ---
 title: Voting Rights Advancement Act
 date: 2017-08-27 17:21:00 -07:00
+published: false
 ---
 
 Excerpted from [**Common Cause**](http://www.commoncause.org/issues/voting-and-elections/voting-rights/) :
