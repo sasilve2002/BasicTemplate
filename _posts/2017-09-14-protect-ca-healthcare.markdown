@@ -22,6 +22,7 @@ District 18
 Capitol Office
 
 Tel: (916) 319-2018
+
 Fax: (916) 319-2118
 
 **Sample Script**:
