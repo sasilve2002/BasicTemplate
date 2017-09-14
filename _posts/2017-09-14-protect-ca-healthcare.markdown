@@ -15,4 +15,12 @@ Despite the federal government cutting open enrollment in half, this bill would 
 
 These bills will be voted on **THIS WEEK**. Call or email Assembly Member [**Rob Bonta**](https://a18.asmdc.org/) NOW and ask him to support these crucial bills!  "
 
-[**Click here to call or email Rob Bonta**](https://a18.asmdc.org/).
+Assemblymember Rob Bonta
+District 18
+Capitol Office
+State Capitol
+P.O. Box 942849
+Sacramento, CA 94249-0018
+Tel: (916) 319-2018
+Fax: (916) 319-2118
+
