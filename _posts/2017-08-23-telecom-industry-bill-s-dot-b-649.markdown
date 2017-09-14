@@ -1,6 +1,7 @@
 ---
 title: Telecom Industry Bill S.B.649
 date: 2017-08-23 14:03:00 -07:00
+published: false
 ---
 
 *It's one of those things that sounds good - we all want better **wireless coverage** - but the **Sierra Club** and **League of Conservation Voters** are against it.*
