@@ -1,6 +1,7 @@
 ---
 title: 2017 “Peace In The Park” Festival
 date: 2017-09-01 07:34:00 -07:00
+published: false
 ---
 
 **Two Bay Area International Day of Peace Events**:
