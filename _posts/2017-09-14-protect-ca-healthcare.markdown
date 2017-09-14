@@ -13,7 +13,7 @@ Provides **continuity of care** in the situation where individual insurance cons
 [**AB 156 (Wood)**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB156): 
 Despite the federal government cutting open enrollment in half, this bill would **allow** our state to **maintain Covered California's 3-month open enrollment** period and moves the end-date into January to allow consumers more time to purchase health insurance after the holidays. 
 
-These bills will be voted on **THIS WEEK**. Call or email Assembly Member [**Rob Bonta**](https://a18.asmdc.org/) NOW and ask him to support these crucial bills!  "
+These bills will be voted on **THIS WEEK**. Call Assembly Member [**Rob Bonta**](https://a18.asmdc.org/) NOW and ask him to support these crucial bills!  "
 
 Assemblymember Rob Bonta
 District 18
@@ -24,7 +24,7 @@ Sacramento, CA 94249-0018
 Tel: (916) 319-2018
 Fax: (916) 319-2118
 
-Script:
+**Sample Script**:
 
 My name is ________ and I'm calling from _________ to ask **Assemblymember Bonta** to please support **SB 133 (Hernandez) **and **AB 156 (Wood)**.  
 The Administration's efforts to attack the Affordable Care Act, has led **Anthem Blue Cross and Cigna to abandon** some regions in our state's **individual health insurance market**, leaving over 300,000 Californians in need of finding new health plans.  **SB 133 and AB 156** will help protect consumers from these attacks.  Thank you.
