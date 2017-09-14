@@ -13,6 +13,6 @@ Provides **continuity of care** in the situation where individual insurance cons
 [**AB 156 (Wood)**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB156): 
 Despite the federal government cutting open enrollment in half, this bill would **allow** our state to **maintain Covered California's 3-month open enrollment** period and moves the end-date into January to allow consumers more time to purchase health insurance after the holidays. 
 
-These bills will be voted on **THIS WEEK**. [Call or email Assembly Member **Rob Bonta**]((https://a18.asmdc.org/)) NOW and ask [him] to support these crucial bills!  "
+These bills will be voted on **THIS WEEK**. Call or email Assembly Member [**Rob Bonta**](https://a18.asmdc.org/) NOW and ask him to support these crucial bills!  "
 
 [**Click here to call or email Rob Bonta**](https://a18.asmdc.org/).
