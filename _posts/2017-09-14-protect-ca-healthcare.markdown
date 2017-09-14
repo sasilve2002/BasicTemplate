@@ -14,4 +14,4 @@ Despite the federal government cutting open enrollment in half, this bill would 
 
 These bills will be voted on THIS WEEK. Call or email [[Assembly Member Rob Bonta](https://a18.asmdc.org/)] NOW and ask [him] to support these crucial bills!  "
 
-Click here to call or email Rob Bonta.
+[Click here to call or email Rob Bonta](https://a18.asmdc.org/).
