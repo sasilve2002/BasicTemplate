@@ -3,6 +3,7 @@ title: Final vote on AB 249, CA DISCLOSE is today!
 date: 2017-09-15 09:27:00 -07:00
 ---
 
+Excerpted from [California Clean Money Campaign](http://www.caclean.org/) :
 Today's the day!  The Assembly votes on AB 249, the California DISCLOSE Act, our game-changing bill to fight secret money in politics by making political ads show the real names of their top 3 funders!
 
 This is the final vote needed to send to the Governor's desk the landmark bill that will strike the biggest blow yet to the unlimited money unleashed by Citizen United.  Because the bill needs a 2/3 majority there's not a vote to spare.
