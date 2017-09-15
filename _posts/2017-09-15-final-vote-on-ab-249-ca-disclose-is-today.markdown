@@ -9,4 +9,4 @@ Excerpted from [**California Clean Money Campaign**](http://www.caclean.org/) :
 
 NOW, PLEASE CALL and ask YOUR Assemblymember to vote "Yes" on AB 249!  It's easy because our calling tool looks up your Senator, their number, and tells you what to say.
 
-[**Click here to all Assemblymember Bonta**](https://www.yesfairelections.org/petition/ab249.php?ms=caclean-home) Now!
+[**Click here to all Assemblymember Bonta**](https://www.yesfairelections.org/petition/ab249.php?ms=caclean-home) Now!  "
