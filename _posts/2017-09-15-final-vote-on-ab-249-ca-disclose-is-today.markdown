@@ -1,6 +1,7 @@
 ---
 title: Final vote on AB 249, CA DISCLOSE is today!
 date: 2017-09-15 09:27:00 -07:00
+published: false
 ---
 
 Excerpted from [**California Clean Money Campaign**](http://www.caclean.org/) :
