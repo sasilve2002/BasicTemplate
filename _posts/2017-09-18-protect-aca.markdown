@@ -3,7 +3,7 @@ title: Protect ACA
 date: 2017-09-18 06:36:00 -07:00
 ---
 
-Excerpted from [Center for American Progress Action Fund](https://www.americanprogressaction.org/) 
+Excerpted from [**Center for American Progress Action Fund**](https://www.americanprogressaction.org/) 
 
 and [**Senator Chris Murphy (CT)**](https://www.murphy.senate.gov/contact) :
 
