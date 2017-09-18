@@ -9,9 +9,9 @@ Excerpted from [**Center for American Progress Action Fund**] (https://www.ameri
 
 FYI, don't be afraid to call - even though we aren't their constituents, we have a right to voice our opinion - and **they should hear us** !
 
-Here's a sample script:
+Here's a **sample script**:
 
-*The Cassidy-Graham-Heller bill will end Medicaid as we know it, will rip coverage from millions of Americans, will gut protections for pre-existing conditions, and will eliminate ACA funding by 2027.  Please vote no on the Cassidy-Graham-Heller bill.  Thank you.*
+*The Cassidy-Graham-Heller bill will end Medicaid as we know it, will rip coverage from millions of Americans, will gut protections for pre-existing conditions, and will eliminate ACA funding by 2027.  This bill would be a disaster for American health care.  Please vote no on the Cassidy-Graham-Heller bill.  Thank you.*
 
 
 [**Click here for our action**](https://trumpcaretoolkit.org/). 
