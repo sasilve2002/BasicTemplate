@@ -13,7 +13,7 @@ FYI, don't be afraid to call - even though we aren't their constituents, we have
 
 Here's a **sample script**:
 
-*The Cassidy-Graham-Heller bill will end Medicaid as we know it, will rip coverage from millions of Americans, will gut protections for pre-existing conditions, and will eliminate ACA funding by 2027.  This bill would be a disaster for American health care.  Please vote no on the Cassidy-Graham-Heller bill.  Thank you.*
+*Hi, my name is _______ and I am calling about the Cassidy-Graham-Heller bill.  The Cassidy-Graham-Heller bill will end Medicaid as we know it, will rip coverage from millions of Americans, will gut protections for pre-existing conditions, and will eliminate ACA funding by 2027.  This bill would be a disaster for American health care.  Please vote no on the Cassidy-Graham-Heller bill.  Thank you.*
 
 
 [**Click here for our action**](https://trumpcaretoolkit.org/). 
