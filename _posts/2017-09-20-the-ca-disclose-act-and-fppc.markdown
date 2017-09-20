@@ -15,4 +15,4 @@ RIGHT NOW, PLEASE SIGN THE PETITION that emails the [FPPC](http://www.fppc.ca.go
 
 [Sign](http://www.caclean.org/letters?name=email-ab249-fppc&ref=ne:newsletter-2017-09-19) even if you've signed a different petition for AB 249! This petition will draft an **email** for you urging the Fair Political Practices Commission to support AB 249 and then **send** it for you after giving you a chance to edit it.   "
 
-[Click here to sign the petition.](http://www.caclean.org/letters?name=email-ab249-fppc&ref=ne:newsletter-2017-09-19)
+[**Click here to sign the petition**.](http://www.caclean.org/letters?name=email-ab249-fppc&ref=ne:newsletter-2017-09-19)
