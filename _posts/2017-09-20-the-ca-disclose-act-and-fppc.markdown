@@ -13,6 +13,6 @@ We need **public comments** telling the [**FPPC**](http://www.fppc.ca.gov/) to s
 
 RIGHT NOW, PLEASE SIGN THE PETITION that emails the [FPPC](http://www.fppc.ca.gov/) and asks them to support [AB 249](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB249), the California DISCLOSE Act — to strike a major blow against the unlimited secret money unleashed by [Citizens United](https://en.wikipedia.org/wiki/Citizens_United_v._FEC)
 
-[Sign](http://www.caclean.org/letters?name=email-ab249-fppc&ref=ne:newsletter-2017-09-19) even if you've signed a different petition for AB 249! This petition will draft an **email** for you urging the Fair Political Practices Commission to support AB 249 and then **send** it for you after giving you a chance to edit it.   "
+[**Sign**](http://www.caclean.org/letters?name=email-ab249-fppc&ref=ne:newsletter-2017-09-19) even if you've signed a different petition for AB 249! This petition will draft an **email** for you urging the Fair Political Practices Commission to support AB 249 and then **send** it for you after giving you a chance to edit it.   "
 
 [**Click here to sign the petition**.](http://www.caclean.org/letters?name=email-ab249-fppc&ref=ne:newsletter-2017-09-19)
