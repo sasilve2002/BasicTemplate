@@ -5,7 +5,7 @@ date: 2017-09-20 05:48:00 -07:00
 
 Excerpted from [**California Clean Money Action Fund**](http://www.cacleanaction.org/) :
 
-[**AB 249**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB249) **passed the legislature** in overwhelming **bipartisan** votes and is now on the way to the **Governor's desk**!
+"   [**AB 249**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB249) **passed the legislature** in overwhelming **bipartisan** votes and is now on the way to the **Governor's desk**!
 
 When he decides whether to sign [**AB 249**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB249), the Governor is likely to look at what is said by the [**Fair Political Practices Commission** (**FPPC**)](http://www.fppc.ca.gov/), responsible for administering and **enforcing disclosure laws**.  The [**FPPC**](http://www.fppc.ca.gov/) will decide whether to support or oppose [**AB 249**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB249) in its **hearing on Thursday**.
 
