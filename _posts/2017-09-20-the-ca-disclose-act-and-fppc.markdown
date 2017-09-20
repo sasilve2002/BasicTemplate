@@ -4,3 +4,11 @@ date: 2017-09-20 05:48:00 -07:00
 ---
 
 Excerpted from [California Clean Money Action Fund](http://www.cacleanaction.org/) :
+
+AB 249 passed the legislature in overwhelming bipartisan votes and is now on the way to the Governor's desk!
+
+When he decides whether to sign AB 249, the Governor is likely to look at what is said by the Fair Political Practices Commission (FPPC), responsible for administering and enforcing disclosure laws.  The FPPC will decide whether to support or oppose AB 249 in its hearing on Thursday.
+
+We need public comments telling the FPPC to support AB 249 — just like every single good government group that's taken a position does, including California Clean Money Campaign, California Common Cause, CALPIRG, the League of Women Voters of California, Maplight, Money Out Voters In, and more.  We all demand AB 249, the strongest disclosure law in the nation.
+
+RIGHT NOW, PLEASE SIGN THE PETITION that emails the FPPC and asks them to support AB 249, the California DISCLOSE Act — to strike a major blow against the unlimited secret money unleashed by Citizens United.
