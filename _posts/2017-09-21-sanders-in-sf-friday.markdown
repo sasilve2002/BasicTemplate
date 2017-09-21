@@ -7,7 +7,7 @@ Excerpted from [National Nurses United](http://www.nationalnursesunited.org/) :
 
 "   Bernie Sanders to Speak on Medicare for All Bill in San Francisco, Friday, Sept. 22
 
-You Can Join—in Person or Online!
+You Can Join — in Person or Online!
 
 Nurses and our allies are proud to stand with Sen. Bernie Sanders on S. 1804, the Medicare for All Act of 2017. This week, we are thrilled to announce that we’ll also be standing with Sen. Sanders in person as he visits San Francisco Friday, Sept. 22 to speak on Medicare for all, as part of the California Nurses Association/National Nurses Organizing Committee National Convention.
 
