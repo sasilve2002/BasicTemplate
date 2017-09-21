@@ -16,5 +16,7 @@ This week, we are thrilled to announce that we’ll also be standing with Sen. S
 And you’re all invited! [**Just RSVP here**](https://www.facebook.com/events/125231624868836/) or [**click here for our live stream link**](http://www.nationalnursesunited.org/cvn17). 
 
 **What**: Sen. Bernie Sanders, public address
+
 **When**: Friday, September 22, 1-2 p.m. PT
+
 **Where**: Yerba Buena Gardens, Esplanade on Mission Street, between 3rd and 4th Streets, San Francisco.
