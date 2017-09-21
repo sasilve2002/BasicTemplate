@@ -22,6 +22,9 @@ And you’re all invited! [**Just RSVP here**](https://www.facebook.com/events/1
 
 
 **Where**: Yerba Buena Gardens, 
+
 Esplanade on Mission Street, 
-between 3rd and 4th Streets, 
+
+between 3rd and 4th Streets,
+ 
 San Francisco.
