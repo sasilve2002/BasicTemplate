@@ -5,7 +5,7 @@ date: 2017-09-21 05:55:00 -07:00
 
 Excerpted from [National Nurses United](http://www.nationalnursesunited.org/) :
 
-"   Bernie Sanders to Speak on Medicare for All Bill in San Francisco, Friday, Sept. 22
+"   [Bernie Sanders](https://www.sanders.senate.gov/) to Speak on Medicare for All Bill in San Francisco, Friday, Sept. 22
 
 You Can Join — in Person or Online!
 
