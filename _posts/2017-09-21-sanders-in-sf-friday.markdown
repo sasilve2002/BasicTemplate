@@ -21,4 +21,7 @@ And you’re all invited! [**Just RSVP here**](https://www.facebook.com/events/1
 **When**: Friday, September 22, 1-2 p.m. PT
 
 
-**Where**: Yerba Buena Gardens, Esplanade on Mission Street, between 3rd and 4th Streets, San Francisco.
+**Where**: Yerba Buena Gardens, 
+Esplanade on Mission Street, 
+between 3rd and 4th Streets, 
+San Francisco.
