@@ -10,5 +10,5 @@ Excerpted from [Indivisible](https://www.indivisible.us/) :
 [**Click here for our actions**](https://www.trumpcareten.org/) :)
 *Be sure to scroll down to get all the options*.
 
-and [click here for a sample script for our democratic reps](https://www.trumpcareten.org/california).
+and [**click here** for a sample **script** for our **democratic reps**](https://www.trumpcareten.org/california).
 
