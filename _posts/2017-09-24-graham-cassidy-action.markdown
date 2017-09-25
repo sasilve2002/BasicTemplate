@@ -15,5 +15,5 @@ Excerpted from [**Jen's Activism Checklist**](https://jenniferhofmann.com/) :
 Sincerely, [name]
 [address]*
 
-**Note**: After September 30, 2017, the Senate will need 60 votes to repeal the ACA, not 51. Their urgency is real. Use your voice today.
+**Note**: After September 30, 2017, the Senate will need 60 votes to repeal the ACA, not 51. Their urgency is real. Use your voice today.   "
 
