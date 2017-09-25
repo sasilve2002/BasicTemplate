@@ -13,6 +13,7 @@ Excerpted from [**Jen's Activism Checklist**](https://jenniferhofmann.com/) :
 **Subject line**: Graham-Cassidy hearing, Monday, Sept. 25, 2017
 
 **Script**: 
+
 I/my family rely/relies on quality, affordable healthcare. Because of this, I oppose the Graham-Cassidy bill. My story with [Medicaid, coverage caps, pre-existing conditions, disabilities, affordability, etc.] is… I would like to see a bipartisan Congressional effort to improve the ACA, not repeal it.
 Sincerely, [name]
 [address]
