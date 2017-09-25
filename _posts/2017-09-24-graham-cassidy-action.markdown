@@ -7,7 +7,8 @@ Excerpted from [**Jen's Activism Checklist**](https://jenniferhofmann.com/) :
 
 "   **Action**: Submit **public testimony** for Monday’s Graham-Cassidy hearing.
 
-**Email**: GCHcomments@finance.senate.gov by 1pm EST Monday 9/25.
+**Email**: GCHcomments@finance.senate.gov 
+**by 1pm EST Monday 9/25**.
 
 **Subject line**: Graham-Cassidy hearing, Monday, Sept. 25, 2017
 
