@@ -18,5 +18,5 @@ I/my family rely/relies on quality, affordable healthcare. Because of this, I op
 Sincerely, [name]
 [address]
 
-**Note**: After September 30, 2017, the Senate will need 60 votes to repeal the ACA, not 51. Their urgency is real. Use your voice today.   "
+**Note**: *After September 30, 2017, the Senate will need 60 votes to repeal the ACA, not 51. Their urgency is real. Use your voice today.*   "
 
