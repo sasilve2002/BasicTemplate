@@ -10,7 +10,7 @@ Excerpted from [Indivisible](https://www.indivisible.us/)
 
 Let out a good sigh.
 
-And repeat after us: YOU JUST DEFEATED TRUMPCARE. AGAIN!
+And repeat after us: **YOU JUST DEFEATED TRUMPCARE. AGAIN!**
 
 You did it. You did it! Your relentless, tenacious, bold organizing just defeated the latest version of TrumpCare.
 
