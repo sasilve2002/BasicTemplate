@@ -31,7 +31,7 @@ This is a major victory for the more 6,000 Indivisible groups and tens of thousa
 
 **This fight isn’t over. While we’re celebrating victory today, we know that Republicans won’t abandon their mission to dismantle our health care system. Here’s what we know right now**:
 
-The Trump Administration is deliberately sabotaging the Affordable Care Act by reducing the window for Open Enrollment, slashing the outreach budget, putting out anti-ACA propaganda, cutting assistance to local organizations who assist people in enrolling for health care, and deliberately turning off healthcare.gov during Open Enrollment.
+The **Trump** Administration is deliberately **sabotaging** the **Affordable Care Act** by reducing the window for **Open Enrollment**, slashing the **outreach budget**, putting out **anti-ACA propaganda**, cutting assistance to local organizations who assist people in **enrolling for health care**, and deliberately **turning off healthcare.gov** during Open Enrollment.
 
 Majority Leader Mitch McConnell now has two choices. He can restart the bipartisan approach to a short-term stabilization bill that Senators Alexander and Murray began earlier this month. Or he can try to bring back zombie TrumpCare -- again -- by combining it with the Trump Tax Scam as part of the Fiscal Year 2018 budget process.
 
