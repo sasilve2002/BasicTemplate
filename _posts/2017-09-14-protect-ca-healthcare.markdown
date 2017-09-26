@@ -1,6 +1,7 @@
 ---
 title: Protect CA Healthcare
 date: 2017-09-14 05:38:00 -07:00
+published: false
 ---
 
 Excerpted from [**Health Access**](http://www.health-access.org/) :
