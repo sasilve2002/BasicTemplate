@@ -33,7 +33,7 @@ This is a major victory for the more 6,000 Indivisible groups and tens of thousa
 
 The **Trump** Administration is deliberately **sabotaging** the **Affordable Care Act** by reducing the window for **Open Enrollment**, slashing the **outreach budget**, putting out **anti-ACA propaganda**, cutting assistance to local organizations who assist people in **enrolling for health care**, and deliberately **turning off healthcare.gov** during Open Enrollment.
 
-Majority Leader Mitch McConnell now has two choices. He can restart the bipartisan approach to a short-term stabilization bill that Senators Alexander and Murray began earlier this month. Or he can try to bring back zombie TrumpCare -- again -- by combining it with the Trump Tax Scam as part of the Fiscal Year 2018 budget process.
+Majority Leader **Mitch McConnell** now has two choices. He can restart the bipartisan approach to a **short-term stabilization bill** that Senators Alexander and Murray began earlier this month. Or he can try to bring back **zombie TrumpCare** -- again -- by combining it with the **Trump Tax Scam** as part of the Fiscal Year 2018 budget process.
 
 Thank you, thank you, thank you for everything you’ve done to build this movement. We don’t know when or if Mitch McConnell, Paul Ryan, and the rest of the GOP will attempt to revive TrumpCare. We do know we’ll have more fights to fight. But for today, we celebrate. Today, we’re proud to stand indivisible with you and have you standing indivisible with us.
 
