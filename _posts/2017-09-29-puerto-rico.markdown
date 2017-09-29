@@ -11,7 +11,7 @@ Excerpted from [Senator **Kamala Harris**](https://www.harris.senate.gov/) :
 
 **Puerto Ricans are Americans**, and it’s up to us to help them while there’s still time to make a difference. We can’t ignore their suffering. So I’m asking:
 
-Can you [make a contribution](https://campaigns.organizefor.org/petitions/help-puerto-rico-after-hurricane-maria?akid=7955.3385891.9TBZXO&bucket=COC&rd=1&source=mailing&t=4) to aid our brothers, sisters, and friends in Puerto Rico after Hurricane Maria? Your donation will support local nonprofits working to address this crisis.
+Can you [**make a contribution**](https://campaigns.organizefor.org/petitions/help-puerto-rico-after-hurricane-maria?akid=7955.3385891.9TBZXO&bucket=COC&rd=1&source=mailing&t=4) to aid our brothers, sisters, and friends in Puerto Rico after Hurricane Maria? Your donation will support local nonprofits working to address this crisis.
 
 [**Click here to HELP THE PEOPLE OF PUERTO RICO**](https://campaigns.organizefor.org/petitions/help-puerto-rico-after-hurricane-maria?akid=7955.3385891.9TBZXO&bucket=COC&rd=1&source=mailing&t=4)
 
