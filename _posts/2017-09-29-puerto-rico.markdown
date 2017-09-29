@@ -15,7 +15,7 @@ Can you make a contribution to aid our brothers, sisters, and friends in Puerto 
 
 [**Click here to HELP THE PEOPLE OF PUERTO RICO**](https://campaigns.organizefor.org/petitions/help-puerto-rico-after-hurricane-maria?akid=7955.3385891.9TBZXO&bucket=COC&rd=1&source=mailing&t=4)
 
-In the aftermath of the destruction of Hurricanes Harvey and Irma, our grassroots team stepped up, raising over $200,000 to support relief efforts in the communities that were devastated by these hurricanes.
+In the aftermath of the destruction of **Hurricanes Harvey and Irma**, our grassroots team stepped up, raising over **$200,000** to support relief efforts in the communities that were devastated by these hurricanes.
 
 We proved that, during times of crisis, we are stronger when we come together and lift each other up.
 
