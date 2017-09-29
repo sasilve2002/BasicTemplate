@@ -19,7 +19,7 @@ In the aftermath of the destruction of **Hurricanes Harvey and Irma**, our grass
 
 We proved that, during times of crisis, we are stronger when we come together and lift each other up.
 
-The devastation seen in [**Puerto Rico**](https://en.wikipedia.org/wiki/Puerto_Rico) is heartbreaking. [Click here to make a contribution](https://secure.actblue.com/donate/kh_maria?refcode=em170928full) of whatever you can afford to aid in the recovery efforts in the aftermath of Hurricane Maria.
+The devastation seen in [**Puerto Rico**](https://en.wikipedia.org/wiki/Puerto_Rico) is heartbreaking. [**Click here to make a contribution**](https://secure.actblue.com/donate/kh_maria?refcode=em170928full) of whatever you can afford to aid in the recovery efforts in the aftermath of Hurricane Maria.
 
 Thanks for all you do.
 
