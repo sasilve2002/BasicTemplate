@@ -9,7 +9,7 @@ Excerpted from [Senator **Kamala Harris**](https://www.harris.senate.gov/) :
 
 [**Hurricane Maria**](https://weather.com/storms/hurricane/news/hurricane-maria-us-east-coast-forecast) has devastated the island, **killing at least 16** -- and 44% of [Puerto Rico](https://en.wikipedia.org/wiki/Puerto_Rico)’s 3.5 million residents are still **without clean drinking water**.
 
-[Puerto Ricans are Americans](https://en.wikipedia.org/wiki/Puerto_Rico), and it’s up to us to help them while there’s still time to make a difference. We can’t ignore their suffering. So I’m asking:
+[**Puerto Ricans are Americans**](https://en.wikipedia.org/wiki/Puerto_Rico), and it’s up to us to help them while there’s still time to make a difference. We can’t ignore their suffering. So I’m asking:
 
 Can you [**make a contribution**](https://campaigns.organizefor.org/petitions/help-puerto-rico-after-hurricane-maria?akid=7955.3385891.9TBZXO&bucket=COC&rd=1&source=mailing&t=4) to aid our brothers, sisters, and friends in Puerto Rico after Hurricane Maria? Your donation will support local nonprofits working to address this crisis.
 
