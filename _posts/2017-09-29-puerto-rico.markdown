@@ -7,11 +7,11 @@ Excerpted from [Senator **Kamala Harris**](https://www.harris.senate.gov/) :
 
 "   What’s happening in **Puerto Rico** is a humanitarian crisis.
 
-[**Hurricane Maria**](https://weather.com/storms/hurricane/news/hurricane-maria-us-east-coast-forecast) has devastated the island, **killing at least 16** -- and 44% of Puerto Rico’s 3.5 million residents are still without clean drinking water.
+[**Hurricane Maria**](https://weather.com/storms/hurricane/news/hurricane-maria-us-east-coast-forecast) has devastated the island, **killing at least 16** -- and 44% of Puerto Rico’s 3.5 million residents are still **without clean drinking water**.
 
 **Puerto Ricans are Americans**, and it’s up to us to help them while there’s still time to make a difference. We can’t ignore their suffering. So I’m asking:
 
-Can you make a contribution to aid our brothers, sisters, and friends in Puerto Rico after Hurricane Maria? Your donation will support local nonprofits working to address this crisis.
+Can you **make a contribution** to aid our brothers, sisters, and friends in Puerto Rico after Hurricane Maria? Your donation will support local nonprofits working to address this crisis.
 
 [**Click here to HELP THE PEOPLE OF PUERTO RICO**](https://campaigns.organizefor.org/petitions/help-puerto-rico-after-hurricane-maria?akid=7955.3385891.9TBZXO&bucket=COC&rd=1&source=mailing&t=4)
 
