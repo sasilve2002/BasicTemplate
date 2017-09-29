@@ -3,7 +3,7 @@ title: Puerto Rico
 date: 2017-09-29 07:13:00 -07:00
 ---
 
-Excerpted from [Senator Kamala Harris](https://www.harris.senate.gov/) :
+Excerpted from [Senator **Kamala Harris**](https://www.harris.senate.gov/) :
 
 "   What’s happening in Puerto Rico is a humanitarian crisis.
 
