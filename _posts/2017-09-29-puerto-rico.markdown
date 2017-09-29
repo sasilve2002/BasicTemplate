@@ -5,7 +5,7 @@ date: 2017-09-29 07:13:00 -07:00
 
 Excerpted from [Senator **Kamala Harris**](https://www.harris.senate.gov/) :
 
-"   What’s happening in **Puerto Rico** is a humanitarian crisis.
+"   What’s happening in [**Puerto Rico**](https://en.wikipedia.org/wiki/Puerto_Rico) is a humanitarian crisis.
 
 [**Hurricane Maria**](https://weather.com/storms/hurricane/news/hurricane-maria-us-east-coast-forecast) has devastated the island, **killing at least 16** -- and 44% of Puerto Rico’s 3.5 million residents are still **without clean drinking water**.
 
