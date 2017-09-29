@@ -13,7 +13,7 @@ Excerpted from [Senator **Kamala Harris**](https://www.harris.senate.gov/) :
 
 Can you [make a contribution](https://secure.actblue.com/donate/kh_maria?refcode=em170928full) to aid our brothers, sisters, and friends in Puerto Rico after Hurricane Maria? Your donation will support local nonprofits working to address this crisis.
 
-[**Click here to HELP THE PEOPLE OF PUERTO RICO**](https://campaigns.organizefor.org/petitions/help-puerto-rico-after-hurricane-maria?akid=7955.3385891.9TBZXO&bucket=COC&rd=1&source=mailing&t=4)
+[Click here to HELP THE PEOPLE OF PUERTO RICO](https://secure.actblue.com/donate/kh_maria?refcode=em170928full)
 
 In the aftermath of the destruction of **Hurricanes Harvey and Irma**, our grassroots team stepped up, raising over **$200,000** to support relief efforts in the communities that were devastated by these hurricanes.
 
