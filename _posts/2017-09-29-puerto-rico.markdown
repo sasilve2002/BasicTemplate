@@ -24,5 +24,5 @@ The devastation seen in Puerto Rico is heartbreaking. [Click here to make a cont
 Thanks for all you do.
 
 Kamala Harris
-U.S. Senator, California
+U.S. Senator, California    "
 
