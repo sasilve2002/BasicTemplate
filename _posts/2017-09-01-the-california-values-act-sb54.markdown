@@ -1,6 +1,7 @@
 ---
 title: The California Values Act SB54
 date: 2017-09-01 18:14:00 -07:00
+published: false
 ---
 
 [Excerpted from **Mary Lizardi, Organizer
