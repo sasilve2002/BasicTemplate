@@ -7,6 +7,6 @@ Excerpted from [Jen's Activism Checklist](https://jenniferhofmann.com/home/weekl
 
 "   Spread the word that ACA health insurance open enrollment starts in 1 month. Since the president cut advertising budget by 90%, it’s up to us.   "
 
-Click here for the enrollment https://localhelp.healthcare.gov/#intro
+Click here for the enrollment page at the Federal website, [HealthCare.gov](https://www.healthcare.gov/) https://localhelp.healthcare.gov/#intro
 
 HealthCare.gov
