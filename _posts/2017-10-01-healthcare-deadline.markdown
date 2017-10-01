@@ -9,4 +9,3 @@ Excerpted from [Jen's Activism Checklist](https://jenniferhofmann.com/home/weekl
 
 [Click here for the enrollment page](https://localhelp.healthcare.gov/#intro) at the Federal website, [HealthCare.gov]. (https://www.healthcare.gov/) 
 
-HealthCare.gov
