@@ -3,7 +3,7 @@ title: Gun Silencers ?!?
 date: 2017-10-02 17:37:00 -07:00
 ---
 
-Excerpted from [Daily Kos](https://www.dailykos.com/) :
+Excerpted from [**Daily Kos**](https://www.dailykos.com/) :
 
 "    More than 50 people were killed (and more than 500 injured) at a mass shooting in Las Vegas last night, and what was Congress about to do? Pass an NRA-sponsored bill to deregulate gun silencers. 
 
