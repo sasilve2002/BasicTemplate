@@ -11,4 +11,4 @@ The **ridiculously** named "[**Hearing Protection Act**](https://www.congress.go
 
 Four months later, they were going to move on this bill—until the **Vegas shooting** happened. Now, they have postponed it again.   "
 
-[Click here to sign the petition to Congress](https://www.dailykos.com/campaigns/petitions/sign-the-petition-stop-congress-from-deregulating-gun-silencers?detail=emailaction&link_id=1&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-sign-the-petition-nra-wants-to-deregulate-gun-silencers&email_referrer=email_242691&email_subject=sign-the-petition-nra-wants-to-deregulate-gun-silencers): Do not deregulate gun silencers. Not now. Not next month. Not next year. NEVER. 
+[**Click here to sign the petition to Congress**](https://www.dailykos.com/campaigns/petitions/sign-the-petition-stop-congress-from-deregulating-gun-silencers?detail=emailaction&link_id=1&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-sign-the-petition-nra-wants-to-deregulate-gun-silencers&email_referrer=email_242691&email_subject=sign-the-petition-nra-wants-to-deregulate-gun-silencers): Do not deregulate gun silencers. Not now. Not next month. Not next year. NEVER. 
