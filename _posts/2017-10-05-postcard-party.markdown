@@ -3,7 +3,13 @@ title: Postcard Party
 date: 2017-10-05 08:05:00 -07:00
 ---
 
-Come to our Post Card Party to remind blue voters to come out to vote in Virginia:  [Click here for more info on Virginia](http://www.whyvamatters2017.com/).
+This month, we have been VERY BUSY !!  In September alone, we've ACTED on Guns, Healthcare, Puerto Rico, and Twit's tax plan.  
+
+Upcoming elections will determine how the Congress will ACT on the zillions of issues facing our world.  
+
+The BIG PUSH is here for flipping red districts blue.   [Click here for more info on Virginia](http://www.whyvamatters2017.com/).
+
+So, please come to our Postcard Party at our next meeting, where we will be writing 100 postcards to Virginia (ala [Postcards4VA](https://postcards4va.com/)) - cards have to be mailed by Oct 25th :Come to our Post Card Party to remind blue voters to come out to vote in Virginia: 
 
 Tuesday,
 Oct. 10, 2017
