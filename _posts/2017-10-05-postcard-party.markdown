@@ -9,7 +9,7 @@ Upcoming elections will determine how the Congress will ACT on the zillions of i
 
 The BIG PUSH is here for flipping red districts blue.   [Click here for more info on Virginia](http://www.whyvamatters2017.com/).
 
-So, please come to our Postcard Party at our next meeting, where we will be writing 100 postcards to Virginia (ala [Postcards4VA](https://postcards4va.com/)) - cards have to be mailed by Oct 25th :
+So, please come to our Postcard Party at our next meeting, where we will be writing 100 postcards to Virginia (ala [Postcards4VA](https://postcards4va.com/)) - cards have to be mailed by Oct 25th :
 
 Tuesday,
 
