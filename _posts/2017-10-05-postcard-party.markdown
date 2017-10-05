@@ -17,7 +17,7 @@ Oct. 10, 2017
 
 Please RSVP to sasilve2002@gmail.com
 
-In addition, the [Sister District Project](https://www.sisterdistrict.com/sister-races-2017/) is sponsoring phonebanks to flip Virginia. (I'm going to the one on Oct. 22nd.)
+In addition, the [Sister District Project](https://www.sisterdistrict.com/sister-races-2017/) is sponsoring phone banks to flip Virginia. (I'm going to the one on Oct. 22nd.)
  
 [Click here to register](https://docs.google.com/forms/d/e/1FAIpQLSe_VTJYro3E3FgFrNNoKnc6AypEqo14Hjw14krn-L7aJwW6vA/viewform?link_id=4&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-upcoming-phone-banks-to-flip-virginia-state-house&email_referrer=upcoming-phone-banks-to-flip-virginia-state-house&email_subject=upcoming-phone-banks-to-flip-virginia-state-house) 
 https://docs.google.com/forms/d/e/1FAIpQLSe_VTJYro3E3FgFrNNoKnc6AypEqo14Hjw14krn-L7aJwW6vA/viewform?link_id=4&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-upcoming-phone-banks-to-flip-virginia-state-house&email_referrer=upcoming-phone-banks-to-flip-virginia-state-house&email_subject=upcoming-phone-banks-to-flip-virginia-state-house
