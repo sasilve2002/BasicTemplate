@@ -5,8 +5,8 @@ date: 2017-10-08 04:56:00 -07:00
 
 Excerpted from the [**California Clean Money Campaign**](https://www.yesfairelections.org/about/aboutus.php)  :
 
-"    **Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown
-**
+"    **Landmark, first-in-the-nation** campaign disclosure legislation, California DISCLOSE Act, **signed by Governor Brown**
+
 
 History!  **AB 249, the California DISCLOSE Act**, our landmark bill against **secret money in politics** that was authored by** Assembly Speaker pro Tem Kevin Mullin**, sponsored by the California Clean Money Campaign, and supported by more than 100,000 others, was just **signed by Governor Brown**!
 
