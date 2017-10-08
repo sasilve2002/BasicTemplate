@@ -13,8 +13,8 @@ from the California Clean Money Campaign
 October 7, 2017
  
 
-Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown
-
+**Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown
+**
 AB 249, providing dramatically increased transparency and disclosure for political ads, signed by Gov. Brown after 7-year grassroots campaign
 
 
