@@ -17,10 +17,6 @@ Today, Governor Jerry Brown signed into law the landmark California DISCLOSE Act
 "No more fine print," said the bill’s author, Speaker pro Tem Kevin Mullin.  "California voters will now be able to make informed decisions, based on honest information about who the true funders are of campaign ads.  This transparency is critical to our democracy and I am proud that California has taken this historic first step to shine the light on 'dark money'.  Hopefully this will encourage others to follow suit."
 
 Assembly Bill 249, authored by Assemblymembers Kevin Mullin (D-San Mateo) and Marc Levine (D-San Rafael), and sponsored by the California Clean Money Campaign, requires ballot measure ads and independent expenditure ads for or against candidates to clearly and prominently disclose the identity of their top three funders, and includes first-in-the-nation follow-the-money rules to make ballot measure ads show their true funders.
- 
-
-
-
 
 AB 249's overwhelming passage through the legislature also represents an uncommon bipartisan victory for campaign finance reform legislation that hopefully bodes well for the future, with every Democrat in both the Senate and Assembly joined by seven Republicans: Senators Anthony Cannella (R-Ceres) and Scott Wilk (R-Santa Clarita) and Assemblymembers Dante Acosta (R-Santa Clarita), Catharine Baker (R-San Ramon), Tom Lackey (R-Palmdale), Brian Maienschein (R-San Diego), and Marc Steinorth (R-Rancho Cucamonga).
 
