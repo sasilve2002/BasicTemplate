@@ -5,7 +5,6 @@ date: 2017-10-08 04:56:00 -07:00
 
 Excerpted from the [**California Clean Money Campaign**](https://www.yesfairelections.org/about/aboutus.php)  :
 
-
 "    **Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown
 **
 
