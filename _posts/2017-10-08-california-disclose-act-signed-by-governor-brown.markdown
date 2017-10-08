@@ -12,8 +12,7 @@ Excerpted from the [**California Clean Money Campaign**](https://www.yesfairelec
 **
 AB 249, providing dramatically increased transparency and disclosure for political ads, signed by Gov. Brown after 7-year grassroots campaign
 
-
-SACRAMENTO, CA — SACRAMENTO, CA — Today, Governor Jerry Brown signed into law the landmark California DISCLOSE Act (AB 249), the nation’s most comprehensive election disclosure law.
+Today, Governor Jerry Brown signed into law the landmark California DISCLOSE Act (AB 249), the nation’s most comprehensive election disclosure law.
 
 "No more fine print," said the bill’s author, Speaker pro Tem Kevin Mullin.  "California voters will now be able to make informed decisions, based on honest information about who the true funders are of campaign ads.  This transparency is critical to our democracy and I am proud that California has taken this historic first step to shine the light on 'dark money'.  Hopefully this will encourage others to follow suit."
 
