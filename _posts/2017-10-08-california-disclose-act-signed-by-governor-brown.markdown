@@ -7,12 +7,7 @@ Excerpted from the [**California Clean Money Campaign**](https://www.yesfairelec
 
 
 "    History!  **AB 249, the California DISCLOSE Act**, our landmark bill against secret money in politics that was authored by** Assembly Speaker pro Tem Kevin Mullin**, sponsored by the California Clean Money Campaign, and supported by more than 100,000 others, was just **signed by Governor Brown**!
-
-FOR IMMEDIATE RELEASE
-from the California Clean Money Campaign
-October 7, 2017
  
-
 **Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown
 **
 AB 249, providing dramatically increased transparency and disclosure for political ads, signed by Gov. Brown after 7-year grassroots campaign
@@ -25,12 +20,8 @@ SACRAMENTO, CA — SACRAMENTO, CA — Today, Governor Jerry Brown signed into la
 Assembly Bill 249, authored by Assemblymembers Kevin Mullin (D-San Mateo) and Marc Levine (D-San Rafael), and sponsored by the California Clean Money Campaign, requires ballot measure ads and independent expenditure ads for or against candidates to clearly and prominently disclose the identity of their top three funders, and includes first-in-the-nation follow-the-money rules to make ballot measure ads show their true funders.
  
 
-Want to help us continue victories against Big Money?
 
-Clean Money monthly members giving as little as $5 a month helped power our grassroots campaign — helping us build a powerful grassroots campaign that just passed by far the strongest disclosure law in the nation.
 
-Become a Clean Money Member Now!
-"With the quiet gesture of a signature, Governor Brown has loudly proclaimed California to be the national leader on the most important issue of our era: taking our democracy back from the special interests and restoring it to the people," said Trent Lange, President of the California Clean Money Campaign, sponsor of AB 249.  "Every American who cares about democracy owes Governor Brown, Assembly Speaker pro Tem Kevin Mullin, and all the bold leaders in the California Legislature of both parties who helped AB 249 pass an enduring debt of gratitude."
 
 AB 249's overwhelming passage through the legislature also represents an uncommon bipartisan victory for campaign finance reform legislation that hopefully bodes well for the future, with every Democrat in both the Senate and Assembly joined by seven Republicans: Senators Anthony Cannella (R-Ceres) and Scott Wilk (R-Santa Clarita) and Assemblymembers Dante Acosta (R-Santa Clarita), Catharine Baker (R-San Ramon), Tom Lackey (R-Palmdale), Brian Maienschein (R-San Diego), and Marc Steinorth (R-Rancho Cucamonga).
 
