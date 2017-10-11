@@ -11,7 +11,7 @@ Excerpted from [**A Daily Call to Action**](https://www.theloyalopposition.net/m
 
 **YOUR ACTION**:
 
-**Call** your members of Congress and urge them to **support a clean Dream Act**  (Scroll down this page for more phone numbers) :
+**Call** your members of Congress and urge them to **support a clean Dream Act**  *(Scroll down this page for more phone numbers)* :
 
 **Senator Dianne Feinstein**
 **(202) 224-3841**
