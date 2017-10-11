@@ -26,7 +26,7 @@ Excerpted from [[A Daily Call to Action]([Click here for the full story](https:/
 
 This is [NAME] and I’m a constituent in [ZIP].
 
-I urge [Sen/Rep____ to support [[S.1615](https://www.congress.gov/bill/115th-congress/senate-bill/1615)/[H.R.3440](https://www.congress.gov/bill/115th-congress/house-bill/3440)], the Dream Act, without conditions or trade-offs.
+I urge [Sen/Rep____ to support [[**S.1615**](https://www.congress.gov/bill/115th-congress/senate-bill/1615)/[**H.R.3440**](https://www.congress.gov/bill/115th-congress/house-bill/3440)], the Dream Act, without conditions or trade-offs.
 
 The Dreamers arrived in the US through no fault of their own and have been raised as Americans.
 
