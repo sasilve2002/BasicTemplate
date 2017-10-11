@@ -5,7 +5,11 @@ date: 2017-10-11 06:20:00 -07:00
 
 Excerpted from [**A Daily Call to Action**](https://www.theloyalopposition.net/mission-statement/) 
 
-"  **Ending DACA** and leaving the Dreamers subject to deportation is not only a **cruel betrayal** of young people raised as Americans, but is also **terrible for the US economy**. Congress must pass the **Dream Act without any conditions**.  "
+"  The urgency of passing the DREAM Act is increasing, given that October 5th was the last day for DACA renewals. The deportation of roughly 800,000 immigrant youth now hangs in the balance. It’s time to amp up the pressure and get Congress to pass a clean DREAM Act, one untarnished by thoughtless and xenophobic items on the Trump agenda, such as unnecessary further restrictions to immigration, massive funding increases at the border, or the notorious border wall. We are syndicating this action from The Loyal Opposition.
+
+Bills: [S. 1615: Dream Act of 2017](https://www.congress.gov/bill/115th-congress/senate-bill/1615) / H.R. 3440: Dream Act of 2017
+
+  **Ending DACA** and leaving the Dreamers subject to deportation is not only a **cruel betrayal** of young people raised as Americans, but is also **terrible for the US economy**. Congress must pass the **Dream Act without any conditions**.  "
 
 [**Click here for the full story**](https://www.theloyalopposition.net/daily-ctas/daily-call-action-october-6th-2017/?utm_source=3NoTrump&utm_campaign=12751bcc74-EMAIL_CAMPAIGN_2017_09_18&utm_medium=email&utm_term=0_f88185aec7-12751bcc74-76580211) 
 
