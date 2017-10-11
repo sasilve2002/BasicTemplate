@@ -28,9 +28,9 @@ This is [NAME] and I’m a constituent in [ZIP].
 
 I urge [Sen/Rep____ to support [[**S.1615**](https://www.congress.gov/bill/115th-congress/senate-bill/1615)/[**H.R.3440**](https://www.congress.gov/bill/115th-congress/house-bill/3440)], **the Dream Act, without conditions or trade-offs**.
 
-The Dreamers arrived in the US through no fault of their own and have been raised as Americans.
+The **Dreamers** arrived in the US through no fault of their own and have been **raised as Americans**.
 
-The Dreamers contribute to American society in jobs, the military and education.
+The **Dreamers contribute** to American society in jobs, the military and education.
 
 Studies show deportation of the Dreamers would have devastating economic impacts on the US.
 
