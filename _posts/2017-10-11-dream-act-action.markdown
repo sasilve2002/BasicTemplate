@@ -7,5 +7,21 @@ Excerpted from [A Daily Call to Action](https://www.theloyalopposition.net/missi
 
 "  Ending DACA and leaving the Dreamers subject to deportation is not only a cruel betrayal of young people raised as Americans, but is also terrible for the US economy. Congress must pass the Dream Act without any conditions.  "
 
-Call your members of Congress and urge them to support a clean Dream Act.
+Call your members of Congress and urge them to support a clean Dream Act :
+
+Senator Dianne Feinstein
+(202) 224-3841
+
+Kamala Harris
+(202) 224-3553
+
+Talking Points
+
+This is [NAME] and I’m a constituent in [ZIP].
+I urge [Sen/Rep____ to support [S.1615/H.R.3440], the Dream Act, without conditions or trade-offs.
+The Dreamers arrived in the US through no fault of their own and have been raised as Americans.
+The Dreamers contribute to American society in jobs, the military and education.
+Studies show deportation of the Dreamers would have devastating economic impacts on the US.
+Breaking faith with the Dreamers or holding them hostage to funding for a useless wall or other costly border control measures would be cruel and un-American.
+
 [Click here to call our reps](https://www.theloyalopposition.net/daily-ctas/daily-call-action-october-6th-2017/?utm_source=3NoTrump&utm_campaign=12751bcc74-EMAIL_CAMPAIGN_2017_09_18&utm_medium=email&utm_term=0_f88185aec7-12751bcc74-76580211) 
