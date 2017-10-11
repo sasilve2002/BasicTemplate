@@ -14,12 +14,15 @@ Excerpted from [[A Daily Call to Action]([Click here for the full story](https:/
 **Call** your members of Congress and urge them to **support a clean Dream Act** :
 
 **Senator Dianne Feinstein
+
 (202) 224-3841**
 
 **Kamala Harris
+
 (202) 224-3553**
 
 **Representative Barbara Lee
+
 (202) 225-2661**
 
 **TALKING POINTS** :
