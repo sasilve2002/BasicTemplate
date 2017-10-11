@@ -15,6 +15,10 @@ Senator Dianne Feinstein
 Kamala Harris
 (202) 224-3553
 
+Representative Barbara Lee
+(202) 225-2661
+
+
 Talking Points
 
 This is [NAME] and I’m a constituent in [ZIP].
