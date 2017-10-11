@@ -32,11 +32,11 @@ The **Dreamers** arrived in the US through no fault of their own and have been *
 
 The **Dreamers contribute** to American society in jobs, the military and education.
 
-Studies show deportation of the Dreamers would have devastating economic impacts on the US.
+Studies show **deportation** of the Dreamers would have devastating **economic impacts** on the US.
 
-Breaking faith with the Dreamers or holding them hostage to funding for a useless wall or other costly border control measures would be cruel and un-American.
+**Breaking faith** with the Dreamers or **holding them hostage** to funding for a useless wall or other costly border control measures would be **cruel and un-American**.
 
-Please support a clean Dream Act without conditions or trade-offs.
+Please support a clean **Dream Act without conditions or trade-offs**.
 
 
 
