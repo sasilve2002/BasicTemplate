@@ -32,8 +32,8 @@ If you have anything to **donate, drop off at**:
 - Granola Bars
 - Sweatpants
 
-"  Keep things portable as there is limited space and no arts/crafts area per se. Also, if you know how to do magic, teach yoga, play music there is a need for activities being led for adults + kids.  "
+"  Keep things **portable** as there is **limited space** and no arts/crafts area per se. **Also, if you know how to do magic, teach yoga, play music there is a need for activities being led for adults + kids.**  "
 
-"  You can connect directly with any of the shelters listed here: https:[//docs.google.com/document/d/14ZhXDNaL260p5OempaFbCrsYBe_5pvNvDqV7xcwn95s/preview]  "
+"  You can **connect directly** with any of the shelters listed here: https:[//docs.google.com/document/d/14ZhXDNaL260p5OempaFbCrsYBe_5pvNvDqV7xcwn95s/preview]  "
  
 
