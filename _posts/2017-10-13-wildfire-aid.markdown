@@ -3,7 +3,7 @@ title: Wildfire Aid
 date: 2017-10-13 07:55:00 -07:00
 ---
 
-From Anne Sophie Hurst, a neighbor who is gathering supplies and driving them up to Santa Rosa - 
+## From Anne Sophie Hurst, a neighbor who is gathering supplies and driving them up to Santa Rosa - 
 
 Here's a List of Needs:
 
