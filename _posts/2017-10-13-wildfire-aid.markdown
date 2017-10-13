@@ -3,7 +3,7 @@ title: Wildfire Aid
 date: 2017-10-13 07:55:00 -07:00
 ---
 
-From a **very generous neighbor** who is gathering supplies and driving them up to Santa Rosa - 
+Excerpted from an email from a **very generous neighbor** who is gathering supplies and driving them up to Santa Rosa - 
 
 If you have anything to **donate, drop off at**:
 
