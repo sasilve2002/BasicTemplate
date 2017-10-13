@@ -11,7 +11,6 @@ If you have anything to **donate, drop off at**:
 
 
 Here's a List of Needs:
-
 - New Underwear :
 : women's - m & l - cotton simple
 : men's - large - cotton simple
