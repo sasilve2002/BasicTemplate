@@ -3,11 +3,11 @@ title: Wildfire Aid
 date: 2017-10-13 07:55:00 -07:00
 ---
 
-From a very generous neighbor who is gathering supplies and driving them up to Santa Rosa - 
+From a **very generous neighbor** who is gathering supplies and driving them up to Santa Rosa - 
 
-If you have anything to donate, drop off at:
+If you have anything to **donate, drop off at**:
 
-"   5061 Parkridge Drive or leave in door way if no one is home. You can also send me an email at annesophie.breuning@gmail.com and I can come pick up items from your house.   "
+"  ** 5061 Parkridge Drive** or leave in door way if no one is home. You can also send me an email at **annesophie.breuning@gmail.com** and I can come pick up items from your house.   "
 
 
 Here's a List of Needs:
@@ -26,6 +26,12 @@ Here's a List of Needs:
 - stickers/sticker workbooks
 - pencils
 - notepads for writing/drawing
+- Towels
+- Razors
+- Duffel bags, backpacks
+- Socks
+- Granola Bars
+- Sweatpants
 
 "  Keep things portable as there is limited space and no arts/crafts area per se. Also, if you know how to do magic, teach yoga, play music there is a need for activities being led for adults + kids.  "
 
