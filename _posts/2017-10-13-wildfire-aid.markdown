@@ -5,7 +5,7 @@ date: 2017-10-13 07:55:00 -07:00
 
 Excerpted from an email from a **very generous neighbor** who is **gathering supplies** and getting them **up north to shelters** - 
 
-If you have anything to **donate, drop off at**:
+If you have anything to **donate, drop the items off at**:
 
 "  **5061 Parkridge Drive** or leave in door way if no one is home. You can also send me an email at **annesophie.breuning@gmail.com** and I can come pick up items from your house.   "
 
