@@ -7,7 +7,7 @@ From a **very generous neighbor** who is gathering supplies and driving them up 
 
 If you have anything to **donate, drop off at**:
 
-"  ** 5061 Parkridge Drive** or leave in door way if no one is home. You can also send me an email at **annesophie.breuning@gmail.com** and I can come pick up items from your house.   "
+"  **5061 Parkridge Drive** or leave in door way if no one is home. You can also send me an email at **annesophie.breuning@gmail.com** and I can come pick up items from your house.   "
 
 
 **Here's a List of Needs**:
