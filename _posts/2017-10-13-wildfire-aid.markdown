@@ -7,11 +7,11 @@ From a very generous neighbor who is gathering supplies and driving them up to S
 
 Here's a List of Needs:
 
-- New underwear:
+- New Underwear :
+: women's - m & l - cotton simple
+: men's - large - cotton simple
+: kids - size 6-10 - cotton
 
---- Women's - m & l - cotton simple
---- Men's - large - cotton simple
---- Kids - size 6-10 - cotton
 - Pads and tampons
 - Travel size shampoo, conditioner, and soap
 - New toothbrushes
