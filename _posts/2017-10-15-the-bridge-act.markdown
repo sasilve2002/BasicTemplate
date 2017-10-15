@@ -13,7 +13,7 @@ Excerpted from [Weekly Actions to Resist Trump](http://www.weekly-resistance.onl
 
 2 - Choose the State.
 
-3 - Scroll down the page to Feinstein/Harris.
+3 - Scroll down the page to Feinstein and Harris.
 
 4 - Call both Feinstein & Harris and use the script.
 
