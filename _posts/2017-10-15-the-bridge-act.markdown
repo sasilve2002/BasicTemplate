@@ -15,9 +15,9 @@ Excerpted from [**Weekly Actions to Resist Trump**](http://www.weekly-resistance
 
 **3 -** Scroll down the page to Feinstein and Harris.
 
-**4 -** Call both Feinstein and use the script.
+**4 -** Call Senator Feinstein and use the script.
 
-**5 -** Then, do it again to call Harris. 
+**5 -** Then, do it again to call Senator Harris. 
 
 
 **Excellent job !**
