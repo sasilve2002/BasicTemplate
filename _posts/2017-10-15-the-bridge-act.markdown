@@ -9,7 +9,7 @@ Excerpted from [Weekly Actions to Resist Trump](http://www.weekly-resistance.onl
 
 [Click here for the action](http://www.weekly-resistance.online/). 
  
-1 - Then Scroll down to the yellow block, "Tell Congress to Pass BRIDGE Act."
+1 - Once you're there, scroll down to the yellow block, "Tell Congress to Pass BRIDGE Act."
 
 2 - Choose the State.
 
