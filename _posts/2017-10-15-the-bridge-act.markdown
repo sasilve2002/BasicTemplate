@@ -3,7 +3,7 @@ title: The BRIDGE Act
 date: 2017-10-15 06:32:00 -07:00
 ---
 
-Excer****pted from [**Weekly Actions to Resist Trump**](http://www.weekly-resistance.online/about.html):
+Excerpted from [**Weekly Actions to Resist Trump**](http://www.weekly-resistance.online/about.html):
 
 "  ...join us in **demanding Congress** pass the **BRIDGE Act** ASAP. “Dreamers,” who got legal protection from deportation under Obama, are especially vulnerable to Trump. **Members of both parties** are co-sponsoring this legislation to let them **keep their protected status** and to stop Trump from using their confidential information against them.  "
 
