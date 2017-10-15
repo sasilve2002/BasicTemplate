@@ -7,11 +7,16 @@ Excerpted from [Weekly Actions to Resist Trump](http://www.weekly-resistance.onl
 
 "  ...join us in demanding Congress pass the BRIDGE Act ASAP. “Dreamers,” who got legal protection from deportation under Obama, are especially vulnerable to Trump. Members of both parties are co-sponsoring this legislation to let them keep their protected status and to stop Trump from using their confidential information against them.  "
 
-[Click here for the action](http://www.weekly-resistance.online/).  
+[Click here for the action](http://www.weekly-resistance.online/). 
+ 
 1 - Then Scroll down to the yellow block, "Tell Congress to Pass BRIDGE Act."
+
 2 - Choose the State.
+
 3 - Scroll down the page to Feinstein/Harris.
+
 4 - Call both Feinstein & Harris and use the script.
+
 
 Excellent job !
 
