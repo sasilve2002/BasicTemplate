@@ -33,5 +33,6 @@ P.S. The **legislature will be back in January**, and we’re already hard at wo
 ************************************************************
 
 And there's **more** (thanks, Alegra!):
+
  [**SB 649**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB649) would have given vast new power to the **telecom industry** by allowing them to **put cell phone towers** pretty much **anywhere** they wanted, without reimbursement for use of public land, and would have taken away the power of local & county governments to regulate them. It passed in the legislature, but was **vetoed by Gov. Brown**.
 
