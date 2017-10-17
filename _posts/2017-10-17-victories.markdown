@@ -9,7 +9,7 @@ The [**2017 California legislative session**](http://www.mercurynews.com/2017/09
 
 -- [**The California Values Act**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB54) passed, ensuring state and local resources are not being used to fuel mass deportations, destroy families, and cripple our economy. 
 
--- The passage of **SB 2 and SB 3** will generate about $5 billion for more **affordable housing** over the next five years. 
+-- The passage of [SB 2](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB2) and SB 3** will generate about $5 billion for more **affordable housing** over the next five years. 
  
 -- **Campaign ads** will have to identify their **big money donors** prominently on tv, radio, online, and in print with the passage of the **Disclose Act**.
 
