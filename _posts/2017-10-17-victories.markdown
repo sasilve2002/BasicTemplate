@@ -13,7 +13,7 @@ Excerpted from [**The League of Women Voters**](https://lwvc.org/) :
  
 -- **Campaign ads** will have to identify their **big money donors** prominently on tv, radio, online, and in print with the passage of the **Disclose Act**.
 
-**Community college students** will be assessed more fairly, creating a **clearer path** to success and preventing them from being tracked into unnecessary non-credit remedial classes thanks to **AB 705**.
+-- **Community college students** will be assessed more fairly, creating a **clearer path** to success and preventing them from being tracked into unnecessary non-credit remedial classes thanks to **AB 705**.
 
 The passage of **AB 918** means the millions of **voters** with limited English skills will **have access** to more information in their **language**, including facsimile ballots—a critical step in ensuring **all voices are heard on election day**. 
 
