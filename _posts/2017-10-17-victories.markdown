@@ -11,7 +11,7 @@ The [**2017 California legislative session**](http://www.mercurynews.com/2017/09
 
 -- The passage of [**SB 2**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB2) and [**SB 3**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB3) will generate about $5 billion for more **affordable housing** over the next five years. 
  
--- **Campaign ads** will have to identify their **big money donors** prominently on tv, radio, online, and in print with the passage of the **Disclose Act**.
+-- **Campaign ads** will have to identify their **big money donors** prominently on tv, radio, online, and in print with the passage of the [**Disclose Act**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180AB249).
 
 -- **Community college students** will be assessed more fairly, creating a **clearer path** to success and preventing them from being tracked into unnecessary non-credit remedial classes thanks to **AB 705**.
 
