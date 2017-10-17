@@ -11,7 +11,7 @@ Excerpted from [**The League of Women Voters**](https://lwvc.org/) :
 
 -- The passage of **SB 2 and SB 3** will generate about $5 billion for more **affordable housing** over the next five years. 
  
-**Campaign ads** will have to identify their **big money donors** prominently on tv, radio, online, and in print with the passage of the **Disclose Act**.
+-- **Campaign ads** will have to identify their **big money donors** prominently on tv, radio, online, and in print with the passage of the **Disclose Act**.
 
 **Community college students** will be assessed more fairly, creating a **clearer path** to success and preventing them from being tracked into unnecessary non-credit remedial classes thanks to **AB 705**.
 
