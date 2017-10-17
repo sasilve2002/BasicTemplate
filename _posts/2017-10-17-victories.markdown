@@ -7,9 +7,9 @@ Excerpted from [**The League of Women Voters**](https://lwvc.org/) :
 
 -- The **2017 California legislative session** is a wrap, and **thanks to you**, we have **new laws** addressing many of the critical issues we face in California. Because so many of you took action, **we’re celebrating major legislative victories**:
 
-The **California Values Act passed**, ensuring state and local resources are not being used to fuel mass deportations, destroy families, and cripple our economy. 
+-- The **California Values Act passed**, ensuring state and local resources are not being used to fuel mass deportations, destroy families, and cripple our economy. 
 
-The passage of **SB 2 and SB 3** will generate about $5 billion for more **affordable housing** over the next five years. 
+-- The passage of **SB 2 and SB 3** will generate about $5 billion for more **affordable housing** over the next five years. 
  
 **Campaign ads** will have to identify their **big money donors** prominently on tv, radio, online, and in print with the passage of the **Disclose Act**.
 
