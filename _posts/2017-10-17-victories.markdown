@@ -19,7 +19,7 @@ The [**2017 California legislative session**](http://www.mercurynews.com/2017/09
 
 In addition to the many action alerts we sent, the League was also advocating for other bills at the Capitol. This year, Governor **Brown signed ALL of the bills supported by the League** that came across his desk! California now has 27 new League-approved laws, improving California’s policies on the **environment, education, voting rights, and more.**
 
-Unfortunately, our efforts to reform California’s **broken bail system were stalled**, but we’ll have another chance to fix that when **SB 10** is taken up again next year. We’re also looking forward to ongoing efforts to address the **housing shortage and progress on key higher education bills**. The League is also ready to take action on **campaign finance reform** and any legislative responses to new federal activity. 
+Unfortunately, our efforts to reform California’s **broken bail system were stalled**, but we’ll have another chance to fix that when [**SB 10**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB10) is taken up again next year. We’re also looking forward to ongoing efforts to address the **housing shortage and progress on key higher education bills**. The League is also ready to take action on **campaign finance reform** and any legislative responses to new federal activity. 
 
 **Thank you again for speaking up!**   
 
