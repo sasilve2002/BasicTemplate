@@ -7,7 +7,7 @@ Excerpted from [**The League of Women Voters**](https://lwvc.org/) :
 
 The [**2017 California legislative session**](http://www.mercurynews.com/2017/09/14/liveblog-california-legislature-takes-on-big-bills-in-end-of-session-crunch/) is a wrap, and **thanks to you**, we have **new laws** addressing many of the critical issues we face in California. Because so many of you took action, **we’re celebrating major legislative victories**:
 
--- The **California Values Act passed**, ensuring state and local resources are not being used to fuel mass deportations, destroy families, and cripple our economy. 
+-- [**The California Values Act**](https://leginfo.legislature.ca.gov/faces/billNavClient.xhtml?bill_id=201720180SB54) passed, ensuring state and local resources are not being used to fuel mass deportations, destroy families, and cripple our economy. 
 
 -- The passage of **SB 2 and SB 3** will generate about $5 billion for more **affordable housing** over the next five years. 
  
