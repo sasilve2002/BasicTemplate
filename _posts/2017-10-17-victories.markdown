@@ -30,7 +30,7 @@ President, LWVC
 
 P.S. The **legislature will be back in January**, and we’re already hard at work. Help us make change: please follow us on Twitter and Facebook, join the League, or contribute.  "
 
-************************************************************
+**###########################################################**
 
 And there's **more** (thanks, Alegra!):
 
