@@ -15,7 +15,7 @@ Excerpted from [**The League of Women Voters**](https://lwvc.org/) :
 
 -- **Community college students** will be assessed more fairly, creating a **clearer path** to success and preventing them from being tracked into unnecessary non-credit remedial classes thanks to **AB 705**.
 
-The passage of **AB 918** means the millions of **voters** with limited English skills will **have access** to more information in their **language**, including facsimile ballots—a critical step in ensuring **all voices are heard on election day**. 
+-- The passage of **AB 918** means the millions of **voters** with limited English skills will **have access** to more information in their **language**, including facsimile ballots—a critical step in ensuring **all voices are heard on election day**. 
 
 In addition to the many action alerts we sent, the League was also advocating for other bills at the Capitol. This year, Governor **Brown signed ALL of the bills supported by the League** that came across his desk! California now has 27 new League-approved laws, improving California’s policies on the **environment, education, voting rights, and more.**
 
