@@ -7,4 +7,10 @@ Excerpted from [**My Civic Workout**](https://www.mycivicworkout.com/) :
 
 "   Weeks after multiple hurricanes devastated parts of the Caribbean and the North American mainland, both Puerto Rico and the U.S. Virgin Islands remain in desperate need of aid. 84% of Puerto Ricans still lack electricity and around 37% do not have access to potable water.   "
 
-"   As recovery efforts continue, Congress has approved some supplementary funding for FEMA’s efforts in Puerto Rico. Check here to see how your Congresspeople voted, then call or fax to discuss their vote with them. If they voted yes, thank them for their efforts and encourage them to support further measures to fund the recovery. If they voted no, politely make your disapproval clear and remind them that voters are watching how they handle this unfolding crisis.
+"   Congress has approved some supplementary funding for FEMA’s efforts in Puerto Rico.   "
+
+[Representative Barbara Lee voted ](https://www.govtrack.us/congress/votes/115-2017/h566)for this additional funding. 
+Call or fax Rep. Lee and thank her for her efforts and encourage her to support further measures to fund the recovery. 
+
+
+
