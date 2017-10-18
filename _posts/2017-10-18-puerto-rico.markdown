@@ -9,7 +9,7 @@ Excerpted from [**My Civic Workout**](https://www.mycivicworkout.com/) :
 
 "   Congress has approved [[**H.Res. 569**](https://www.govtrack.us/congress/bills/115/hres569)] some supplementary funding for FEMA’s efforts in **Puerto Rico**.   "
 
-[Representative **Barbara Lee**](https://lee.house.gov/) **voted** (click here to see the vote) (https://www.govtrack.us/congress/votes/115-2017/h566)**for this additional funding**.
+[Representative **Barbara Lee**](https://lee.house.gov/) **voted** ([click here to see the vote](https://www.govtrack.us/congress/votes/115-2017/h566)) **for this additional funding**.
 
 **Our Action**:
  
