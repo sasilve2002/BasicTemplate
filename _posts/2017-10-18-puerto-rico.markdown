@@ -16,7 +16,9 @@ Excerpted from [**My Civic Workout**](https://www.mycivicworkout.com/) :
 **Call or fax Rep. Lee and thank her** for her efforts and encourage her to support further measures to fund the recovery. 
 
 [**Congresswoman Lee**](https://lee.house.gov/contact)
+
 **P: (510) 763-0370**
+
 **F: (510) 763-6538**
 
 
