@@ -11,7 +11,7 @@ Excerpted from [**My Civic Workout**](https://www.mycivicworkout.com/) :
 
 [Representative **Barbara Lee** **voted** (click here to see the vote) ](https://www.govtrack.us/congress/votes/115-2017/h566)**for this additional funding**.
 
-**Our Action:****
+**Our Action**:
  
 **Call or fax Rep. Lee and thank her** for her efforts and encourage her to support further measures to fund the recovery. 
 
