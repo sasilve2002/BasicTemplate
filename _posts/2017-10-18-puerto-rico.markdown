@@ -15,7 +15,7 @@ Excerpted from [**My Civic Workout**](https://www.mycivicworkout.com/) :
  
 **Call or fax Rep. Lee and thank her** for her efforts and encourage her to support further measures to fund the recovery. 
 
-**Sample Script**
+**Sample Script:**
 
 H*i, my name is ______ and I am a California constituent from [zipcode].  I am calling to thank Congresswoman Lee for voting for H.Res. 569, additional funding for FEMA’s efforts in Puerto rico, and I encourage her to support further measures to fund the recovery.  Thank you and have a great day.*  
 
