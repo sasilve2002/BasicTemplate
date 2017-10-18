@@ -3,7 +3,7 @@ title: Puerto Rico
 date: 2017-10-18 06:48:00 -07:00
 ---
 
-Excerpted from [My Civic Workout](https://www.mycivicworkout.com/) :
+Excerpted from [**My Civic Workout**](https://www.mycivicworkout.com/) :
 
 "  Weeks after multiple hurricanes devastated parts of the Caribbean and the North American mainland, both Puerto Rico and the U.S. Virgin Islands remain in desperate need of aid. 84% of Puerto Ricans still lack electricity and around 37% do not have access to potable water. All this occurs amid fears that the death toll may be rising beyond what is currently known to authorities. We’re entering a critical period for post-disaster relief, and when it comes to our government’s priorities, our voices matter. Let’s speak out again, and do what we can to help.  "
 
