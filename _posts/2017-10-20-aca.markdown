@@ -21,9 +21,9 @@ Joining today’s filing are the Attorneys General of Kentucky, Massachusetts, C
 
 **Call Senators Kamala Harris & Dianne Feinstein** :
 
-Sample Script :
+**Sample Script** :
 
-Hi, my name is _________ and I am a constituent from [zipcode].  I am outraged at Trump’s executive orders to dismantle the Affordable Care Act.  I expect Congress to take action to protect low-income Californians!  Thank you.
+*Hi, my name is _________ and I am a constituent from [zipcode].  I am outraged at Trump’s executive orders to dismantle the Affordable Care Act.  I expect Congress to take action to protect low-income Californians!  Thank you.*
 
 Senator Harris: (202) 224-3553
 
