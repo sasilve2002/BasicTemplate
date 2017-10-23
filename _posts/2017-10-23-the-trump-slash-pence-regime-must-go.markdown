@@ -7,7 +7,7 @@ date: 2017-10-23 12:53:00 -07:00
 
 [***Click here** to see their facebook page*](https://www.facebook.com/events/130152454303756/) .
 
-*Then, **click "see times"** to see the page with the **full schedule**.
+**Then, **click "see times"** to see the page with the **full schedule***.
 
 *This is a great opportunity to tie in a **fun trip to SF** with a chance to show our **pro-democracy spirit***.   **>**
 
