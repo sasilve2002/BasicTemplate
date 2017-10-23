@@ -3,6 +3,11 @@ title: The Trump/Pence Regime Must GO!
 date: 2017-10-23 12:53:00 -07:00
 ---
 
+**Refuse Refuse Fascism Bay Area** chapter (Phone: 510-253-5551) is organizing **rallies in SF @ Union Square.**
+[Click here to see their facebook page](https://www.facebook.com/events/130152454303756/).  Then, **click "see times"** to see the page with the **full schedule.**
+
+This is a great opportunity to tie in a fun trip to SF with a chance to show our **pro-democracy spirit**.
+
 Excerpted from [**RefuseFascism.org**](https://refusefascism.org/):
 
 "We’ve been following **Indivisible**, and we are hearing from members that we share the same concerns about Trump, Pence and the Members of Congress who do his bidding.  We agree with your members that **it's getting late, and that we need to act way before 2018**. "
@@ -15,8 +20,5 @@ Excerpted from [**RefuseFascism.org**](https://refusefascism.org/):
 
 "**We do not have much time**."
 
-**Refuse Refuse Fascism Bay Area** chapter (Phone: 510-253-5551) is organizing **rallies in SF @ Union Square.**
-[Click here to see their facebook page](https://www.facebook.com/events/130152454303756/).  Then, **click "see times"** to see the page with the **full schedule.**
-
-This is a great opportunity to tie in a fun trip to SF with a chance to show our **pro-democracy spirit**.  
+  
 
