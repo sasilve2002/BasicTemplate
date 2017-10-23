@@ -8,6 +8,8 @@ date: 2017-10-23 12:53:00 -07:00
 
 *This is a great opportunity to **tie in a fun trip to SF** with a chance to show our **pro-democracy spirit**.*   >
 
+----------------------------------------------------------------
+
 Excerpted from [**RefuseFascism.org**](https://refusefascism.org/):
 
 "We’ve been following **Indivisible**, and we are hearing from members that we share the same concerns about Trump, Pence and the Members of Congress who do his bidding.  We agree with your members that **it's getting late, and that we need to act way before 2018**. "
