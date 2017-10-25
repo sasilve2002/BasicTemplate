@@ -3,7 +3,7 @@ title: Expose TwitterTwit's Tax Scam
 date: 2017-10-25 06:20:00 -07:00
 ---
 
-Excerpted from [**Indivisible**](https://www.indivisible.org/) :
+Excerpted from [**Indivisible**](https://www.indivisible.org/) and [3NoTrump](http://www.3notrump.org/) :
 
 "   Let’s be clear: the **Trump Tax Scam is a massive giveaway** to the wealthy and corporations, paid for by **raising taxes on some middle class** families and **slashing critical social programs** like Medicare and Medicaid. 
 
