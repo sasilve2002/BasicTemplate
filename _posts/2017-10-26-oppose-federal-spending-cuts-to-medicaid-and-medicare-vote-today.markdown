@@ -3,7 +3,7 @@ title: OPPOSE FEDERAL SPENDING CUTS TO MEDICAID AND MEDICARE - VOTE TODAY
 date: 2017-10-26 06:25:00 -07:00
 ---
 
-Excerpted from 5Calls :
+Excerpted from [5Calls](https://5calls.org/) :
 
 "  The House is expected to vote on the final passage of the Senate budget resolution on [today] Thursday, October 26th. The bill narrowly passed the Senate on October 19th, with a 49-51 vote.  "
 
