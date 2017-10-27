@@ -33,6 +33,7 @@ It's the GOTV [*"Get Out The Vote"*] push so let's **get every Democrat out to v
 **November 7** Turpin, 9AM-12PM PT, Oakland - Upper Dimond
 
 ********************************************************************
+
 **NEW** *TEXT BANKING - TEXT BANKING - TEXT BANKING - TEXT BANKING* **NEW**
 
 "   **Text- Banking**
