@@ -8,7 +8,7 @@ Excerpted from [**Sister District Project**](https://www.sisterdistrict.com/):
 "  Hey CA-13! It's 13 days to Election Day in Virginia!
 It's the GOTV [*"Get Out The Vote"*] push so let's **get every Democrat out to vote**.
  
-**RSVP to GOTV here**: [http://bit.ly/2vB2iNr](https://docs.google.com/forms/d/e/1FAIpQLSe_VTJYro3E3FgFrNNoKnc6AypEqo14Hjw14krn-L7aJwW6vA/viewform?link_id=4&can_id=a0808b54f5b462f790d1476ee8a2c1f3&source=email-upcoming-phone-banks-to-flip-virginia-state-house&email_referrer=upcoming-phone-banks-to-flip-virginia-state-house&email_subject=upcoming-phone-banks-to-flip-virginia-state-house)
+**RSVP to GOTV here**: [**http://bit.ly/2vB2iNr**](https://docs.google.com/forms/d/e/1FAIpQLSe_VTJYro3E3FgFrNNoKnc6AypEqo14Hjw14krn-L7aJwW6vA/viewform?link_id=4&can_id=a0808b54f5b462f790d1476ee8a2c1f3&source=email-upcoming-phone-banks-to-flip-virginia-state-house&email_referrer=upcoming-phone-banks-to-flip-virginia-state-house&email_subject=upcoming-phone-banks-to-flip-virginia-state-house)
 
 We have SIX call parties planned between now and election day. New additions to the schedule include WEEKDAY GOTV phone bank parties on NOVEMBER 6 and 7 -- the Monday before and Tuesday of the election! We are leaving messages for Tran and Turpin, so the parties will be very active.
 
