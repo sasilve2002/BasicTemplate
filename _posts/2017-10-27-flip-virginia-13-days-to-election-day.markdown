@@ -16,7 +16,7 @@ To view the schedule and sign up, [**click here to RSVP**](http://bit.ly/2vB2iNr
 
 For questions, please email Rachel (sdp.ca.13.phonebank@gmail.com).
 
-Phone banking party schedule (all Pacific Time):
+**Phone banking party schedule** (all Pacific Time):
 
 October 28, Turpin, 12-3 PM PT, S Berkeley - Near Sacramento and Alcatraz
 
