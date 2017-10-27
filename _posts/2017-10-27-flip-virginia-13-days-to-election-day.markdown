@@ -12,7 +12,7 @@ RSVP to GOTV here: [http://bit.ly/2vB2iNr](https://docs.google.com/forms/d/e/1FA
 
 We have SIX call parties planned between now and election day. New additions to the schedule include WEEKDAY GOTV phone bank parties on NOVEMBER 6 and 7 -- the Monday before and Tuesday of the election! We are leaving messages for Tran and Turpin, so the parties will be very active.
 
-To view the schedule and sign up, click on this RSVP Link: http://bit.ly/2vB2iNr. Once you have RSVP'd the host will email you the full address plus other details in advance of the party. For questions, please email Rachel (sdp.ca.13.phonebank@gmail.com).
+To view the schedule and sign up, [click here to RSVP](http://bit.ly/2vB2iNr) :  For questions, please email Rachel (sdp.ca.13.phonebank@gmail.com).
 
 Phone banking party schedule (all Pacific Time):
 
