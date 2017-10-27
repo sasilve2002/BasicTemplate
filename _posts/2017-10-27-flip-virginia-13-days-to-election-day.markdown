@@ -14,24 +14,26 @@ We have SIX call parties planned between now and election day. New additions to 
 
 To view the schedule and sign up, [**click here to RSVP**](http://bit.ly/2vB2iNr). 
 
+Once you have RSVP'd the host will email you the full address plus other details in advance of the party.
+
 For questions, please email Rachel (sdp.ca.13.phonebank@gmail.com).
 
 **Phone banking party schedule** (all Pacific Time):
 
-October 28, Turpin, 12-3 PM PT, S Berkeley - Near Sacramento and Alcatraz
+**October 28**, Turpin, 12-3 PM PT, S Berkeley - Near Sacramento and Alcatraz
 
-October 29, Tran, 1-4 PM PT, N Berkeley - near Solano Ave
+**October 29**, Tran, 1-4 PM PT, N Berkeley - near Solano Ave
 
-November 4 Turpin, 12-3 PM PT, N Oakland - Temescal
+**November 4** Turpin, 12-3 PM PT, N Oakland - Temescal
 
-November 5 Tran, 1-4 PM PT, Oakland - near Piedmont Ave
+**November 5** Tran, 1-4 PM PT, Oakland - near Piedmont Ave
 
-November 6 Turpin, 10AM-12PM PT, Oakland - near Rockridge BART
+**November 6** Turpin, 10AM-12PM PT, Oakland - near Rockridge BART
 
-November 7 Turpin, 9AM-12PM PT, Oakland - Upper Dimond
+**November 7** Turpin, 9AM-12PM PT, Oakland - Upper Dimond
 
 
-Text- Banking
+**Text- Banking**
 You can text to #TurnVABlue in your spare time or with a party of friends!  Join us in texting for candidates up and down the ballot in Virginia by volunteering through https://www.sisterdistrict.com/programs/textbanking/  and using the password: "gameonva"  We'll be using a new application called GroundGame to reach out to voters - you won't be using your own phone or phone number to text with, and the campaign provides sample scripts for you to use in your conversations.  So easy!  We've had great results already in September and October, texting with voters about where their candidates stand on the issues, how to get absentee ballots or volunteer for the campaign, and now we are in the last push to make sure they have their plans to vote. If you are a District Captain, you cn contact Maya in the Textbanking channel on Slack and if you are not, then get in touch with Penni if you need help at pennitakade@gmail.com
 
 Postcards
