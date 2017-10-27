@@ -32,7 +32,7 @@ It's the GOTV [*"Get Out The Vote"*] push so let's **get every Democrat out to v
 
 **November 7** Turpin, 9AM-12PM PT, Oakland - Upper Dimond
 
-*TEXT BANKING - TEXT BANKING - TEXT BANKING - TEXT BANKING*
+**NEW** *TEXT BANKING - TEXT BANKING - TEXT BANKING - TEXT BANKING* **NEW**
 
 "   **Text- Banking**
 You can text to [**#TurnVABlue**](https://twitter.com/hashtag/turnvablue?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Ehashtag) in your spare time or with a party of friends!  [**Click here to join us**](https://www.sisterdistrict.com/programs/textbanking/) in texting for **candidates** up and down the ballot in **Virginia** by volunteering and using the **password**: "**gameonva**"  We'll be using a new application called **GroundGame** to reach out to voters - you won't be using your own phone or phone number to text with, and the campaign provides **sample scripts** for you to use in your conversations.  **So easy**!  We've had great results already in September and October, texting with voters about where their candidates stand on the issues, how to get absentee ballots or volunteer for the campaign, and now we are in the last push to make sure they have their plans to vote. Contact **Penni** @ **pennitakade@gmail.com** if you need **help** .   "
