@@ -6,7 +6,7 @@ date: 2017-10-27 06:08:00 -07:00
 Excerpted from [Sister District Project](https://www.sisterdistrict.com/):
 
 "  Hey CA-13! It's 13 days to Election Day in Virginia!
-It's the GOTV push so let's get every Democrat out to vote. 
+It's the GOTV [*"Get Out The Vote"*] push so let's get every Democrat out to vote. 
 RSVP to GOTV here: http://bit.ly/2vB2iNr
 We have SIX call parties planned between now and election day. New additions to the schedule include WEEKDAY GOTV phone bank parties on NOVEMBER 6 and 7 -- the Monday before and Tuesday of the election! We are leaving messages for Tran and Turpin, so the parties will be very active.
 
