@@ -3,7 +3,7 @@ title: Flip Virginia-13 days to Election Day
 date: 2017-10-27 06:08:00 -07:00
 ---
 
-Excerpted from [Sister District Project](https://www.sisterdistrict.com/):
+Excerpted from [**Sister District Project**](https://www.sisterdistrict.com/):
 
 "  Hey CA-13! It's 13 days to Election Day in Virginia!
 It's the GOTV [*"Get Out The Vote"*] push so let's get every Democrat out to vote.
