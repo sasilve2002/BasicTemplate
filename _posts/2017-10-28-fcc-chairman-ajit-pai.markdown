@@ -9,5 +9,5 @@ Excerpted from [Freepress](https://www.freepress.net/?akid=6960.10679315.XYvDfN&
 
 "   Don't let the FCC silence you: **Urge the agency to block Pai's dangerous proposal**.   "
 
-[Click here for our action.](http://act.freepress.net/sign/consol_pai_ownership/?t=2&akid=6960%2E10679315%2EXYvDfN)
+[**Click here** for our action.](http://act.freepress.net/sign/consol_pai_ownership/?t=2&akid=6960%2E10679315%2EXYvDfN)
 
