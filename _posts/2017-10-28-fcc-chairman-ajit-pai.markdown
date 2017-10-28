@@ -3,7 +3,7 @@ title: FCC Chairman Ajit Pai
 date: 2017-10-28 07:43:00 -07:00
 ---
 
-Excerpted from [Freepress](https://www.freepress.net/?akid=6960.10679315.XYvDfN&rd=1&t=3) :
+Excerpted from [**Freepress**](https://www.freepress.net/?akid=6960.10679315.XYvDfN&rd=1&t=3) :
 
 **Stop Trump and Pai from Destroying Local Media**
 
