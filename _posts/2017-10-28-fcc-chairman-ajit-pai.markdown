@@ -5,7 +5,7 @@ date: 2017-10-28 07:43:00 -07:00
 
 Excerpted from [**Freepress**](https://www.freepress.net/?akid=6960.10679315.XYvDfN&rd=1&t=3) :
 
-**Stop Trump and Pai from Destroying Local Media**
+**Stop Trump and Pai from [Destroying Local Media](http://billmoyers.com/story/twenty-years-of-media-consolidation-has-not-been-good-for-our-democracy/)**
 
 
 "   [**FCC** Chairman Ajit **Pai**](https://www.fcc.gov/about/leadership/ajit-pai) wants to **slash** some of the last remaining **protections** we have **against massive media consolidation**. And he wants to ram these changes through **by Nov. 16** with **no public input** or comment.  "
