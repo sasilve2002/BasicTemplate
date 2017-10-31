@@ -3,7 +3,7 @@ title: Protecting Mueller
 date: 2017-10-31 05:44:00 -07:00
 ---
 
-Two important actions:
+*Two important actions*:
 
 Excerpted from [Common Dreams](https://www.commondreams.org/) :
 
