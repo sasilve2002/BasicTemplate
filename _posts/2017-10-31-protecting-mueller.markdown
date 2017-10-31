@@ -14,3 +14,4 @@ Excerpted from [**Common Dreams**](https://www.commondreams.org/) :
 [**Click here for the petition** ](https://petitions.moveon.org/sign/protect-the-mueller-investig)and 
 
 [**click here**](https://www.trumpisnotabovethelaw.org/event/mueller-firing-rapid-response/13255/signup/?source=&s=) to join a **rally**.
+
