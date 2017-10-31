@@ -12,3 +12,5 @@ Excerpted from [**Common Dreams**](https://www.commondreams.org/) :
 2) In addition to circulating a [**petition**](https://petitions.moveon.org/sign/protect-the-mueller-investig) calling on **Congress** to do everything in its power to "**protect the Mueller investigation**," [**MoveOn.org**](https://front.moveon.org/) and a group of progressive organizations called attention to a planned "**Nobody Is Above the Law**" emergency **mobilization** in 48 states in the event that **Mueller is fired**.
 
 [**Click here for the petition** ](https://petitions.moveon.org/sign/protect-the-mueller-investig)and 
+
+[click here](https://www.trumpisnotabovethelaw.org/event/mueller-firing-rapid-response/13255/signup/?source=&s=) to join a rally.
