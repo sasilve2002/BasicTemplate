@@ -15,9 +15,9 @@ We must **block the bill** at every stage of the process!
 
 We need your help to **mobilize progressives in key red states** and districts to pressure their Senators and Representatives **to vote "No" on tax cuts** for the rich and to **protect funding for Medicaid, Medicare, Social Security and other programs**. "
 
-################################################################
-
 **Join phone banks throughout November**!   "
+
+**################################################################**
 
 **Click on your choice** of the following **RSVP**'s to register:
 
