@@ -5,7 +5,7 @@ date: 2017-11-03 06:15:00 -07:00
 
 Excerpted from [**OFA BERKELEY**](https://www.ofa.us/) + [**INDIVISIBLE BERKELEY HEALTH TEAM**](https://www.indivisibleberkeley.org/teams)
 
-"Today, House Republican leaders released their draft tax code overhaul that would give the wealthiest people and corporations giant tax breaks which, in turn, set in motion a statutory trigger for funding cuts to pay for the $1.5 trillion tax cut.  
+"Today, House Republican leaders released their [draft tax code](https://www.countable.us/articles/1372-s-house-gop-tax-plan) overhaul that would give the wealthiest people and corporations giant tax breaks which, in turn, set in motion a statutory trigger for funding cuts to pay for the $1.5 trillion tax cut.  
 
 This is a Trojan horse strategy for achieving what they couldn't with their failed ACA repeal.  It will slash Medicaid, Medicare, and other critical services that all the rest of us depend on.  
 
