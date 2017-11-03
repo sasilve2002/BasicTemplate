@@ -19,7 +19,7 @@ We need your help to mobilize progressives in key red states and districts to pr
 Join phone banks throughout November!
 
 Saturday, November 4 - 1:00 to 4:00 PM - Berkeley:  [RSVP](https://my.ofa.us/page/event/detail/gsfzrp?link_id=2&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-action-alert-stop-the-gop-tax-bills-hidden-attack-on-health-care-funding-2&email_referrer=email_257375&email_subject=action-alert-stop-the-gop-tax-bills-hidden-attack-on-health-care-funding)
-Sunday, November 5 - 1:00 to 4:00 PM - Berkeley:  RSVP
+Sunday, November 5 - 1:00 to 4:00 PM - Berkeley:  [RSVP](https://my.ofa.us/page/event/detail/gsfzrw?link_id=3&can_id=e59665c3f3c1222626c02430d1bf6bdb&source=email-action-alert-stop-the-gop-tax-bills-hidden-attack-on-health-care-funding-2&email_referrer=email_257375&email_subject=action-alert-stop-the-gop-tax-bills-hidden-attack-on-health-care-funding)
 Saturday, November 11 - 1:00 to 4:00 PM - Berkeley:  RSVP
 Sunday, November 12 - 1:00 to 3:00 PM - Berkeley:  RSVP
 Saturday, November 18 - 1:00 to 4:00 PM - Berkeley:  RSVP
