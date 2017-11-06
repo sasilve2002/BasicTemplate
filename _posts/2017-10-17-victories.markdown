@@ -1,6 +1,7 @@
 ---
 title: Victories
 date: 2017-10-17 05:31:00 -07:00
+published: false
 ---
 
 Excerpted from [**The League of Women Voters**](https://lwvc.org/) :
