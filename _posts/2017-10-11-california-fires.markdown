@@ -1,6 +1,7 @@
 ---
 title: California Fires
 date: 2017-10-11 07:15:00 -07:00
+published: false
 ---
 
 Excerpted from the [**Sacramento Bee**](http://www.sacbee.com/) :
