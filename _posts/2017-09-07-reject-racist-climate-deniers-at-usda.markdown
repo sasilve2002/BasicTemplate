@@ -1,6 +1,7 @@
 ---
 title: Reject racist climate deniers at USDA
 date: 2017-09-07 17:39:00 -07:00
+published: false
 ---
 
 Excerpted from [**CREDO Action**](https://credoaction.com/) :
