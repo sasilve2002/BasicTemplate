@@ -1,6 +1,7 @@
 ---
 title: Reject Quarles
 date: 2017-09-10 06:05:00 -07:00
+published: false
 ---
 
 Excerpted from [CPD (Center for Popular Democracy)](https://populardemocracy.org/) :
