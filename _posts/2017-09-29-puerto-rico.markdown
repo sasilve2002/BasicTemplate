@@ -1,6 +1,7 @@
 ---
 title: Puerto Rico
 date: 2017-09-29 07:13:00 -07:00
+published: false
 ---
 
 Excerpted from [Senator **Kamala Harris**](https://www.harris.senate.gov/) :
