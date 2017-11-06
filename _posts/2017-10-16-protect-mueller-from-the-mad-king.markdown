@@ -1,6 +1,7 @@
 ---
 title: Protect Mueller from the mad king
 date: 2017-10-16 07:04:00 -07:00
+published: false
 ---
 
 Excerpted from [**Wall-of-Us**](https://www.wallofus.org/):
