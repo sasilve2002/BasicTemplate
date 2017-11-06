@@ -1,6 +1,7 @@
 ---
 title: Rally for Universal Health Care October 23-24
 date: 2017-10-19 05:13:00 -07:00
+published: false
 ---
 
 Excerpted from [**State Strong California**](https://www.facebook.com/CAStateStrong/) :
