@@ -1,6 +1,7 @@
 ---
 title: California DISCLOSE Act, signed by Governor Brown
 date: 2017-10-08 04:56:00 -07:00
+published: false
 ---
 
 Excerpted from the [**California Clean Money Campaign**](https://www.yesfairelections.org/about/aboutus.php)  :
