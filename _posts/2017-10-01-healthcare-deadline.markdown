@@ -1,6 +1,7 @@
 ---
 title: Healthcare Deadline
 date: 2017-10-01 15:17:00 -07:00
+published: false
 ---
 
 Excerpted from [**Jen's Activism Checklist**](https://jenniferhofmann.com/home/weekly-action-checklist-democrats-independents-republicans-conscience/) :
