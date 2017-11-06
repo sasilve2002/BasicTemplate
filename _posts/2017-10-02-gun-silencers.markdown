@@ -1,6 +1,7 @@
 ---
 title: Gun Silencers ?!?
 date: 2017-10-02 17:37:00 -07:00
+published: false
 ---
 
 Excerpted from [**Daily Kos**](https://www.dailykos.com/) :
