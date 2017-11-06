@@ -1,6 +1,7 @@
 ---
 title: The BRIDGE Act
 date: 2017-10-15 06:32:00 -07:00
+published: false
 ---
 
 Excerpted from [**Weekly Actions to Resist Trump**](http://www.weekly-resistance.online/about.html):
