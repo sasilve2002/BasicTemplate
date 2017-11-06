@@ -1,6 +1,7 @@
 ---
 title: Oppose the  FY18 Budget Resolution
 date: 2017-09-11 04:57:00 -07:00
+published: false
 ---
 
 Excerpted from [Indivisible](https://www.indivisibleguide.com/) :
