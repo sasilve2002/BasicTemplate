@@ -1,6 +1,7 @@
 ---
 title: Postcard Party
 date: 2017-10-05 08:05:00 -07:00
+published: false
 ---
 
 This month, we have been VERY BUSY !!  In **September** alone, we've ACTED on **Guns, Healthcare, Puerto Rico, and Twit's tax plan**.  
