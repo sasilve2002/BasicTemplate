@@ -3,7 +3,7 @@ title: Children's Healthcare
 date: 2017-11-07 07:24:00 -08:00
 ---
 
-Excerpted from 5Calls :
+Excerpted from [5Calls](https://5calls.org/) :
 
 **CHIP Funding Finally Arrives, With Strings**.
 
