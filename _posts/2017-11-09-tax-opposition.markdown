@@ -9,5 +9,5 @@ Excerpted from [Indivisible](https://www.indivisible.org/)
 
 "  Tell your Democratic MoC: No Trump Tax Scam.  "
 
- They want to eliminate taxes that only affect the wealthiest individuals and let corporations pay even less than they already do. The majority of the tax benefits from the Republicans’ plan will go to the top 1%, which will exacerbate our country’s massive racial wealth gap. ([Click here to learn more](https://www.trumptaxscam.org/).)
+"  They want to eliminate taxes that only affect the wealthiest individuals and let corporations pay even less than they already do. The majority of the tax benefits from the Republicans’ plan will go to the top 1%, which will exacerbate our country’s massive racial wealth gap. ([Click here to learn more](https://www.trumptaxscam.org/).)  "
 
