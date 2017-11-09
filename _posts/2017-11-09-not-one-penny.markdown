@@ -13,7 +13,7 @@ Excerpted from [**Not One Penny**](https://notonepenny.org/) :
 
 "  Fight back against tax cuts for the wealthy and well-connected.  "
 
-"  [**Click here to send a message**](https://notonepenny.org/take-action/) to your representatives in Congress: Not One Penny in tax cuts for the rich! Our tool will call you and patch you through to your officials.  "
+"  [**Click here to send a message**](https://notonepenny.org/take-action/) to your representatives in **Congress**: Not One Penny in tax cuts for the rich! Our tool will call you and patch you through to your officials.  "
 
-[Click here for our action.
+[**Click here for our action**.
 ](https://notonepenny.org/take-action/)
