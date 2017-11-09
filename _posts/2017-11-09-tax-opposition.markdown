@@ -3,7 +3,9 @@ title: 'Taxes : Not One Penny !'
 date: 2017-11-09 08:48:00 -08:00
 ---
 
-***This is another in a series of actions we will continue to pursue to thwart TwitterTwit's Tax Scam**.*  Persistence Wins !
+***Energy and persistence conquer all things. Benjamin Franklin***
+Read more at: https://www.brainyquote.com/topics/persistence
+This is another in a series of actions we will continue to pursue to thwart TwitterTwit's Tax Scam.  Persistence Wins !
 
 Excerpted from [Not One Penny](https://notonepenny.org/) 
 
