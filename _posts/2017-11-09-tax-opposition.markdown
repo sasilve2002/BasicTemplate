@@ -1,13 +1,8 @@
 ---
-title: Tax Opposition
+title: 'Taxes : Not One Penny !'
 date: 2017-11-09 08:48:00 -08:00
 ---
 
-Time to make another call to reinforce our opposition to TwitterTwit's Tax Scam.
+Excerpted from [Not One Penny](https://notonepenny.org/) 
 
-Excerpted from [Indivisible](https://www.indivisible.org/)
-
-"  Tell your Democratic MoC: No Trump Tax Scam.  "
-
-"  They want to eliminate taxes that only affect the wealthiest individuals and let corporations pay even less than they already do. The majority of the tax benefits from the Republicans’ plan will go to the top 1%, which will exacerbate our country’s massive racial wealth gap. ([Click here to learn more](https://www.trumptaxscam.org/).)  "
-
+https://notonepenny.org/take-action/?p2asource=20171109tmemail
