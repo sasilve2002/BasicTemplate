@@ -4,8 +4,8 @@ date: 2017-11-09 08:48:00 -08:00
 ---
 
 ***Energy and persistence conquer all things. Benjamin Franklin***
-Read more at: https://www.brainyquote.com/topics/persistence
-This is another in a series of actions we will continue to pursue to thwart TwitterTwit's Tax Scam.  Persistence Wins !
+
+*This action is another in a series of actions we will be pursuing to defeat TwitterTwit's Tax Scam.*
 
 Excerpted from [Not One Penny](https://notonepenny.org/) 
 
