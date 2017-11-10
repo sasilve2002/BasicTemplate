@@ -11,7 +11,7 @@ Excerpted from [**ACLU People Power**](https://www.aclu.org/blog-feed/people-pow
 
 1.  [**Click here for our action**](https://vote.peoplepower.org/cms/thanks/join_lpv_homepage?state=CA.).  
 
-2.  Then, look to the right of the page, find "Take Action Now" & click "write a letter."  
+2.  Then, look to the right of the page, find "Take Action Now" & click "write a letter to the editor."  
 
 3.  On the new page, fill out the form & select "sign up."  
 
