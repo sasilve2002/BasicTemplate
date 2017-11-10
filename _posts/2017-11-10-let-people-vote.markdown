@@ -17,5 +17,7 @@ Excerpted from [**ACLU People Power**](https://www.aclu.org/blog-feed/people-pow
 
 4.  On the next new page, click "send letter."
 
+[ *I'm sorry this looks so complicated !* ]
+
 
 
