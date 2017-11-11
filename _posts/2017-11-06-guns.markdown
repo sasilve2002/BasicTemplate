@@ -1,6 +1,7 @@
 ---
 title: Guns
 date: 2017-11-06 06:22:00 -08:00
+published: false
 ---
 
 Excerpted from [**Indivisible**](https://www.indivisible.org/) :
