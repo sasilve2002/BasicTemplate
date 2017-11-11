@@ -13,7 +13,7 @@ This coming **Tuesday**
 
 Please **RSVP** : **sasilve2002@gmail.com**
 
-We will be welcoming Andrea from [**Sister District Project CA-13**](https://www.sisterdistrict.com/ca13/) to our meeting, to help us get started **duplicating** this week's **flipping successes** for **2018**.  
+We will be welcoming Andrea from [**Sister District Project CA-13**](https://www.sisterdistrict.com/ca13/) to our meeting, to help us get started **duplicating** this week's **[flipping successes](https://www.nytimes.com/2017/11/07/us/politics/virginia-election-democrats.html)** for **2018**.  
 
 We are also welcoming members from [**Redwood Heights Indivisible Collective**](https://www.facebook.com/rhindivisiblec/).  Awesome!
 
