@@ -1,6 +1,7 @@
 ---
 title: Tax Scam
 date: 2017-11-06 06:02:00 -08:00
+published: false
 ---
 
 Excerpted from [**Indivisible**](https://www.indivisible.org/) :
