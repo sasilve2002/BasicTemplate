@@ -15,3 +15,5 @@ We will be welcoming Andrea from [**Sister District Project CA-13**](https://www
 We are also welcoming members from [**Redwood Heights Indivisible Collective**](https://www.facebook.com/rhindivisiblec/).  Awesome!
 
 *Bring a friend/relative/neighbor* - anyone who is upset at **TwitterTwit's deplorable shenanigans** - it'll make them feel better, and make a bigger impact **against** this administration's attacks on **IMMIGRANTS** & **HEALTHCARE** & help us **FLIP DISTRICTS**.
+
+***Energy and persistence conquer all things. Benjamin Franklin***
