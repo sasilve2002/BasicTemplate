@@ -3,7 +3,7 @@ title: ActLocal
 date: 2017-11-17 07:28:00 -08:00
 ---
 
-This event is tomorrow :
+**This event is tomorrow** :
 
 
 Saturday, 
