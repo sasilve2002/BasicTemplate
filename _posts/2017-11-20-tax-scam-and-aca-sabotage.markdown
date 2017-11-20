@@ -7,4 +7,5 @@ Excerpted from [**Indivisible**](https://www.indivisible.org/)
 
 **Stop the Republicon Tax Scam and Obamacare Sabotage**
 
-http://act.indivisible.org/event/local-actions/7438/signup/?akid=6432.37.4Nlftt&zip=&source=
+[Click here to sign up.](http://act.indivisible.org/event/local-actions/7438/signup/?akid=6432.37.4Nlftt&zip=&source=)
+
