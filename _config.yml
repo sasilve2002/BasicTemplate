@@ -70,8 +70,8 @@ facebook_username: indivisibleguide
 background-image: "/uploads/CC%20signs%20in%20window.jpg"
 member-count: 24
 footer-title: The best way to support our democracy is to participate.  Join us to
-  help flip districts and to  support California's sanctuary status.  We can do this
-  together.   Welcome !
+  help flip districts, support immigration, and healthcare.  We can do this together.   Welcome
+  !
 markdown: kramdown
 gems:
 - jekyll-feed
