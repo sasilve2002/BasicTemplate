@@ -3,6 +3,8 @@ title: Tax Scam and ACA Sabotage
 date: 2017-11-20 08:09:00 -08:00
 ---
 
+**FYI - This is a corrected version of our action.**
+
 Excerpted from [**Indivisible**](https://www.indivisible.org/)
 
 **Stop the Republicon Tax Scam and Obamacare Sabotage**
