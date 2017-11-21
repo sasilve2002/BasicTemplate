@@ -1,6 +1,7 @@
 ---
 title: Let People Vote
 date: 2017-11-10 07:08:00 -08:00
+published: false
 ---
 
 Excerpted from [**ACLU People Power**](https://www.aclu.org/blog-feed/people-power) :
