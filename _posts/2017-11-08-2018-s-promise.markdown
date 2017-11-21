@@ -1,6 +1,7 @@
 ---
 title: 2018's Promise
 date: 2017-11-08 13:37:00 -08:00
+published: false
 ---
 
 Excerpted from [**Swing Left**](https://swingleft.org/) 
