@@ -7,7 +7,7 @@ Excerpted from [**Indivisible**](https://www.indivisible.org/)
 
 "  **Donald **Trump** is a **National Security Risk**. 
 
-[[Click here](https://www.indivisible.org/resource/donald-trump-national-security-risk-heres-current-trumpthreatlevel/)] for the current **#TrumpThreatLevel****.
+[[**Click here**](https://www.indivisible.org/resource/donald-trump-national-security-risk-heres-current-trumpthreatlevel/)] **for the current #TrumpThreatLevel.**
 
 
 
