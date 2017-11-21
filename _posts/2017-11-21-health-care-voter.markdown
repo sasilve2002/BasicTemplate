@@ -16,7 +16,7 @@ Not sure what exactly to say? No worries -- we jotted down some ideas for you:
 
 What to say on Thanksgiving:
 
-1.  NEED HEALTH INSURANCE?  SIGN UP TODAY AT [Healthcare.gov](https://www.healthcare.gov/)
+1.  NEED HEALTH INSURANCE?  SIGN UP TODAY AT [**Healthcare.gov**](https://www.healthcare.gov/)
 
 2.  
 
