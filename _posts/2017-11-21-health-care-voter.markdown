@@ -14,15 +14,8 @@ So this Thursday, while you're catching up with family or friends, watching the 
 
 Not sure what exactly to say? No worries -- we jotted down some ideas for you:
 
-What to say on Thanksgiving:
+* **What to say on Thanksgiving** - [**CLICK HERE**](https://www.facebook.com/sharer/sharer.php?u=https%3A//www.facebook.com/healthcarevoter/photos/a.1951528471789314.1073741828.1934191280189700/2020366218238872/?type=3) 
 
-1.  NEED HEALTH INSURANCE?  SIGN UP TODAY AT [**Healthcare.gov**](https://www.healthcare.gov/)
-
-2.  MOST PEOPLE CAN GET QUALITY HEALTH COVERAGE FOR $50 TO $100 A MONTH.
-
-3.  OPEN ENROLLMENT ENDS ON DECEMBER 15th, SO DON'T PUT IT OFF!
-
-4.  
 
 
 
