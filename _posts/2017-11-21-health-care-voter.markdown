@@ -3,8 +3,7 @@ title: Health Care Voter
 date: 2017-11-21 08:13:00 -08:00
 ---
 
-HEALTH CARE VOTER
-susan --
+Excerpted from [**Health Care Voter**](https://www.healthcare.gov/) :
 
 Thanksgiving is right around the corner -- and this year, we're thankful for this passionate, engaged community of Health Care Voters like you. Millions of Americans still have access to quality, affordable health care because of your efforts, so susan, THANK YOU!
 
