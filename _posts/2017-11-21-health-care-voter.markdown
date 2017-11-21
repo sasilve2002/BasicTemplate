@@ -7,7 +7,7 @@ Excerpted from [**Health Care Voter**](https://www.healthcare.gov/) :
 
 "  **Thanksgiving** is right around the corner -- and this year, we're thankful for this passionate, engaged community of Health Care Voters like you. Millions of Americans still have access to quality, affordable health care because of your efforts, so, **THANK YOU!**  "
 
-"  As you know, this administratio****n is dedicated to **sabotaging **the **Affordable Care Act**, including its current efforts to discourage participation in the **Open Enrollment** period that **ends on December 15**.  "
+"  As you know, this **administration** is dedicated to **sabotaging** the **Affordable Care Act**, including its current efforts to discourage participation in the **Open Enrollment** period that **ends on December 15**.  "
 
 "  **So this Thursday**, while you're catching up with family or friends, watching the football game, and hopefully eating a hearty meal, don't forget to **talk to your loved ones** about how important it is **to get covered** under the Affordable Care Act.  "
 
