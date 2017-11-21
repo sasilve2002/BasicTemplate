@@ -15,10 +15,10 @@ Excerpted from [**Health Care Voter**](https://www.healthcare.gov/) :
 
 * **What to say on Thanksgiving** - [**CLICK HERE**](https://www.facebook.com/sharer/sharer.php?u=https%3A//www.facebook.com/healthcarevoter/photos/a.1951528471789314.1073741828.1934191280189700/2020366218238872/?type=3) 
 
-We know talking about politics can be off-limits at some family gatherings, but this shouldn't be political -- or controversial -- at all. It's about making sure your family and friends are covered in case the unimaginable happens.
+We know talking about **politics** can be **off-limits** at some **family** gatherings, but this shouldn't be political -- or controversial -- at all. It's about **making sure your family and friends are covered in case the unimaginable happens**.
 
-**And what better way to show you care?
+And what better way to **show you care**?
 
-Have a happy and healthy Thanksgiving!**
+**Have a happy and healthy Thanksgiving**!
 
 -- The Health Care Voter Team
