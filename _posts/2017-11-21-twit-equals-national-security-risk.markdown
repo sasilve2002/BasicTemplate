@@ -7,7 +7,9 @@ Excerpted from [**Indivisible**](https://www.indivisible.org/)
 
 "  **Donald **Trump** is a **National Security Risk**. "
 
-"  From his tweets to his bluster to his white supremacist policies, Donald Trump poses a security risk to the United States. He is actively making us less safe with each day in office. Here is a running list of just some of the ways he has threatened our safety.  "
+"  From his **tweets** to his **bluster** to his **white supremacist policies**, Donald **Trump** poses a **security risk** to the United States. He is actively making us **less safe** with each day in office. "
 
-[[**Click here**](https://www.indivisible.org/resource/donald-trump-national-security-risk-heres-current-trumpthreatlevel/)] **for the current #TrumpThreatLevel.**
+"  [**Click here for a running list**](https://www.indivisible.org/resource/donald-trump-national-security-risk-heres-current-trumpthreatlevel/) of just some of the ways he has threatened our safety.  "
+
+[[**Click here**]()] **for the current #TrumpThreatLevel.**
 
