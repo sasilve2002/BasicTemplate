@@ -18,7 +18,9 @@ What to say on Thanksgiving:
 
 1.  NEED HEALTH INSURANCE?  SIGN UP TODAY AT [**Healthcare.gov**](https://www.healthcare.gov/)
 
-2.  
+2.  MOST PEOPLE CAN GET QUALITY HEALTH COVERAGE FOR $50 TO $100 A MONTH.
+
+
 
 
 
