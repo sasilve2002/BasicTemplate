@@ -21,4 +21,4 @@ And what better way to **show you care**?
 
 **Have a happy and healthy Thanksgiving**!
 
--- The Health Care Voter Team
+-- The Health Care Voter Team  "
