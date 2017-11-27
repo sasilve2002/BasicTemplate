@@ -1,5 +1,5 @@
 ---
-title: The Twit's Tax Bill Cartoon
+title: Twit's Tax Bill Cartoon
 date: 2017-11-27 08:41:00 -08:00
 ---
 
