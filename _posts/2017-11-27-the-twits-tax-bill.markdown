@@ -5,3 +5,7 @@ date: 2017-11-27 08:41:00 -08:00
 
 Excerpted from [**Vox Media**](https://www.vox.com/)  :
 
+**The Republican tax bill, explained with a bowl of cartoon cereal** 
+
+Click here to see a cartoon that explains what The Republican Tax Bill  it really does.
+
