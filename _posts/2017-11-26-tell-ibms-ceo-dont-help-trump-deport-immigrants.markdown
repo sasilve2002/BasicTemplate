@@ -9,5 +9,5 @@ Excerpted from [**Daily Kos**](https://www.dailykos.com/)  :
 
 "   We won’t let **IBM get away** with creating a **racist tool**. 
 
-[**Click here to sign the petition**](https://actionnetwork.org/petitions/dont-build-trumps-deportation-machine?source=IBMvetting_20171116_DK&link_id=11&can_id=e59665c3f3c1222626c02430d1bf6bdb&email_referrer=email_267212&email_subject=ivanka-throws-gasoline-on-roy-moores-race-trump-livid-as-dems-capitalize-with-ad) to tell IBM's CEO: Don't help Trump deport immigrants!
+[**Click here to sign the petition**](https://actionnetwork.org/petitions/dont-build-trumps-deportation-machine?source=IBMvetting_20171116_DK&link_id=11&can_id=e59665c3f3c1222626c02430d1bf6bdb&email_referrer=email_267212&email_subject=ivanka-throws-gasoline-on-roy-moores-race-trump-livid-as-dems-capitalize-with-ad) to **tell IBM's CEO: Don't help Trump deport immigrants**!
 
