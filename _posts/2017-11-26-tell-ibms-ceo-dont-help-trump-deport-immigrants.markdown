@@ -5,7 +5,7 @@ date: 2017-11-26 19:11:00 -08:00
 
 Excerpted from [**Daily Kos**](https://www.dailykos.com/)  :
 
-"   **[Immigration and Customs Enforcement (ICE)](https://www.ice.gov/)** are planning to create actual tools that will make it easier to discriminate against and deport immigrants -- and they’re recruiting tech companies to help them.   "
+"   **[Immigration and Customs Enforcement (ICE)](https://www.ice.gov/)** are planning to create actual **tools** that will make it easier to **discriminate** against and **deport** immigrants -- and they’re recruiting **tech companies** to help them.   "
 
 "   We won’t let **IBM get away** with creating a **racist tool**. 
 
