@@ -24,6 +24,6 @@ Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 **Who**: Indivisible groups across the country and volunteers like **you**!  "
 
 
-[Click here to sign up](http://www.indivisible.org/gotv-alabama/).  "
+[**Click here to sign up**](http://www.indivisible.org/gotv-alabama/).  "
 
 ***Go Team** !*
