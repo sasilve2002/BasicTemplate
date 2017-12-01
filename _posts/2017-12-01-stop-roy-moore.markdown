@@ -16,9 +16,13 @@ Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 "  Here are the details:
 
 **What**: Indivisible **text-banking from California**
+
 **Where**: Anywhere! You just need **two spare hours, a comfy chair, and a computer** or iPad.
+
 **When**: **12/2, 12/3, 12/9, 12/10, 12/11, and 12/12, from 9am to 9pm CT every day**
+
 **Who**: Indivisible groups across the country and volunteers like **you**!  "
+
 
 [Click here to sign up](http://www.indivisible.org/gotv-alabama/).  "
 
