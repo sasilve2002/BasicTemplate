@@ -18,4 +18,6 @@ Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 **When**: **12/2, 12/3, 12/9, 12/10, 12/11, and 12/12, from 9am to 9pm CT every day**
 **Who**: Indivisible groups across the country and volunteers like **you**!  "
 
-[Click here to sign up](http://www.indivisible.org/gotv-alabama/).
+[Click here to sign up](http://www.indivisible.org/gotv-alabama/).  "
+
+***Go Team** !*
