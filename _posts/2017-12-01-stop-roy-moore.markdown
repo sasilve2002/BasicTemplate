@@ -3,7 +3,7 @@ title: Stop Roy Moore
 date: 2017-12-01 07:01:00 -08:00
 ---
 
-EASY, QUICK, AND FROM YOUR OWN EASY CHAIR :
+**EASY, QUICK, AND FROM YOUR OWN EASY CHAIR** :
 
 Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 
