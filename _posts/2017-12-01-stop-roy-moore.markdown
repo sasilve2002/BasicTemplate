@@ -3,6 +3,8 @@ title: Stop Roy Moore
 date: 2017-12-01 07:01:00 -08:00
 ---
 
+EASY, QUICK, AND FROM YOUR OWN EASY CHAIR :
+
 Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 
 "  **Will you [sign up for a volunteer shift](http://www.indivisible.org/gotv-alabama/) to stop Roy Moore and elect Doug Jones before E-Day**?  "
