@@ -9,7 +9,7 @@ Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 
 "  **Will you [sign up for a volunteer shift](http://www.indivisible.org/gotv-alabama/) to stop Roy Moore and elect Doug Jones before E-Day**?  "
 
-"  **Election Day** is **December 12**, which means we have less than two weeks to make a big impact.  "
+"  **Election Day** is **December 12**, which means we have **less than two weeks** to make a big impact.  "
 
 "  We’ve set up a [**text-banking program**](http://www.indivisible.org/gotv-alabama/) where Indivisibles anywhere can help our Alabama groups get out the vote for this important election.  " 
 
