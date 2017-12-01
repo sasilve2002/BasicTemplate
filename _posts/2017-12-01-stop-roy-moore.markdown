@@ -5,7 +5,7 @@ date: 2017-12-01 07:01:00 -08:00
 
 Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 
-"  **Will you sign up for a volunteer shift to stop Roy Moore and elect Doug Jones before E-Day**?  "
+"  **Will you [sign up for a volunteer shift](http://www.indivisible.org/gotv-alabama/) to stop Roy Moore and elect Doug Jones before E-Day**?  "
 
 "  **Election Day is December 12, which means we have less than two weeks to make a big impact**.  "
 
