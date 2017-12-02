@@ -9,6 +9,6 @@ Excerpted from [Indivisible](https://www.indivisible.org/) :
 
 [[Harris (202) 224-3553](https://www.harris.senate.gov/) &
 
-[Feinstein (202) 224-3841]
+[Feinstein (202) 224-3841 (https://www.feinstein.senate.gov/public/)] 
 
-(https://www.feinstein.senate.gov/public/)] to tell them to take the **[Dreamer Pledge](https://www.dreamerpledge.org/)**: a commitment to stand up for Dreamers and only pass a **continuing resolution (CR)** that **includes** the **DREAM Act**.
+to tell them to take the **[Dreamer Pledge](https://www.dreamerpledge.org/)**: a commitment to stand up for Dreamers and only pass a **continuing resolution (CR)** that **includes** the **DREAM Act**.
