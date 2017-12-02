@@ -1,6 +1,7 @@
 ---
 title: Resistance Action Sites
 date: 2017-07-19 07:11:00 -07:00
+published: false
 ---
 
 ## **Resistance Sites**  (Just a few of the many action sites **just a click away** :)
