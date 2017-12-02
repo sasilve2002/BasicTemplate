@@ -11,7 +11,7 @@ Excerpted from [Indivisible](https://www.indivisible.org/) :
 
 [**Feinstein**](https://www.feinstein.senate.gov/public/) **(213) 894-5000** 
 
-to tell them to take the **[Dreamer Pledge](https://www.dreamerpledge.org/)**: a commitment to stand up for Dreamers and only pass a **continuing resolution (CR)** that **includes** the **DREAM Act**.
+to tell them to take the **[Dreamer Pledge](https://www.dreamerpledge.org/)**: a commitment to stand up for Dreamers and only pass a **continuing resolution (CR)** that **includes** the **DREAM Act**.   "
 
 Sample script:
 
