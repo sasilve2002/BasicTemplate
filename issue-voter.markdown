@@ -1,6 +1,7 @@
 ---
 title: Issue Voter
 date: 2017-08-22 08:17:00 -07:00
+published: false
 ---
 
 Excerpted from [**whatdoidoabouttrump.com**](http://whatdoidoabouttrump.com/) :
