@@ -7,7 +7,7 @@ Excerpted from [Indivisible](https://www.indivisible.org/) :
 
 "  Turn your **anger** at the Senate's vote **for the Tax Scam** vote into **action** on the next big fight for a DREAM Act.  **Call** your **Senators** 
 
-[[Harris (202) 224-3553](https://www.harris.senate.gov/) &
+[[[Harris](https://www.harris.senate.gov/) (202) 224-3553] &
 
 [[Feinstein](https://www.feinstein.senate.gov/public/)) (202) 224-3841 
 
