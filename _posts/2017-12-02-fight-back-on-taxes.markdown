@@ -5,7 +5,7 @@ date: 2017-12-02 06:08:00 -08:00
 
 Excerpted from [**Indivisible**](https://www.indivisible.org/) :
 
-"  Turn your **anger** at the Senate's vote **for the Tax Scam** vote into **action** on the next big fight for a DREAM Act.  **Call** your **Senators** 
+"  Turn your **anger** at the Senate's vote **for the Tax Scam** vote into **action** on the next big fight for a **DREAM Ac**t.  **Call** your **Senators** 
 
 [**Harris**](https://www.harris.senate.gov/) **(202) 224-3553** &
 
