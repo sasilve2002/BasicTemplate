@@ -9,4 +9,4 @@ For a feel good moment, read about the latest resistance successes by clicking o
 
 [Good News from the Resistance](http://marlafelcher.com/) 
 
-https://www.celebratesmallvictories.com/archives/
+[Small Victories](https://www.celebratesmallvictories.com/archives/) 
