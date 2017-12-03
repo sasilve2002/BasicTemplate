@@ -7,5 +7,6 @@ For a feel good moment, read about the latest resistance successes by clicking o
 
 [**What Went Right**](https://whatwentright.org/) 
 
-[Good News from the Resistance](http://marlafelcher.com/) (http://marlafelcher.com/)
+[Good News from the Resistance](http://marlafelcher.com/) 
+
 https://www.celebratesmallvictories.com/archives/
