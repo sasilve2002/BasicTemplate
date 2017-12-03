@@ -1,5 +1,5 @@
 ---
-title: Successes Websites
+title: Resistance Wins
 date: 2017-12-03 06:51:00 -08:00
 ---
 
