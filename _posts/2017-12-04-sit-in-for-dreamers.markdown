@@ -3,7 +3,7 @@ title: Sit-in for Dreamers
 date: 2017-12-04 05:16:00 -08:00
 ---
 
-Excerpted from [**Our Revolution**](https://ourrevolution.com/ourdream/) 
+Excerpted from [**Our Revolution**] (https://ourrevolution.com/ourdream/) :
 
 On the heels of last week's Tax Scam:
 
