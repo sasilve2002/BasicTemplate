@@ -7,7 +7,7 @@ Excerpted from [**Our Revolution**](https://ourrevolution.com/ourdream/)
 
 On the heels of last week's Tax Scam:
 
-"  Right now, we have a unique opportunity to pass a clean DREAM Act that would provide permanent protection for undocumented youth.  "
+"  Right **now**, we have a unique opportunity to pass a clean [**DREAM Act**](https://www.indivisible.org/resource/tell-senator-defend-daca-support-durbin-graham-dream-act/) that would provide **permanent protection for undocumented youth**.  "
 
 "  Undocumented youth are leading a campaign to take over MoC’s offices across the country to demand they stand for Dreamers." 
  
