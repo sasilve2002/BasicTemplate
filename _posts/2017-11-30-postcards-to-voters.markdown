@@ -1,6 +1,7 @@
 ---
 title: Postcards to Voters
 date: 2017-11-30 06:28:00 -08:00
+published: false
 ---
 
 ***Writing postcards to get out the vote (GOTV) from the comfort of your favorite chair!***
