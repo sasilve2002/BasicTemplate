@@ -17,8 +17,10 @@ Sample phone script:
 
 ***Hello.  My name is ______ and I'm calling from [zipcode] to ask Senator [Feinstein] [Harris] to stand up for Dreamers and only pass a continuing resolution that includes the Dream Act.  Thank you.***
 
-Sample email script:
+Sample email script - cut & paste:
 
 ***I am writing Senator [Feinstein] [Harris] to encourage her to continue to stand up for Dreamers and only pass a continuing resolution that includes the Dream Act.  Thank you.***
-[Click here for Feinstein](https://www.feinstein.senate.gov/public/index.cfm/e-mail-me).
-[Click here for Harris](https://www.harris.senate.gov/contact/email)
+
+[**Click here for Feinstein's email**](https://www.feinstein.senate.gov/public/index.cfm/e-mail-me).
+
+[**Click here for Harris' email**](https://www.harris.senate.gov/contact/email).
