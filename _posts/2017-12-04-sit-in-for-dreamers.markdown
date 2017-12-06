@@ -1,6 +1,7 @@
 ---
 title: Sit-in for Dreamers
 date: 2017-12-04 05:16:00 -08:00
+published: false
 ---
 
 Excerpted from **[Our Revolution](https://ourrevolution.com/ourdream/)** 
