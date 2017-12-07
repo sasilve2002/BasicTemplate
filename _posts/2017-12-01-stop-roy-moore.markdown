@@ -1,6 +1,7 @@
 ---
 title: Stop Roy Moore
 date: 2017-12-01 07:01:00 -08:00
+published: false
 ---
 
 ***EASY, QUICK, AND FROM YOUR OWN EASY CHAIR*** :
