@@ -11,7 +11,7 @@ Excerpted from [**[Mashable](http://mashable.com/about/)**]:
 
 "  [**Click here** to see **ways to help** victims of the Southern California wildfires](http://mashable.com/2017/12/07/southern-california-fires-how-to-help/?utm_source=Small+Victories+Newsletter&utm_campaign=3b33420792-EMAIL_CAMPAIGN_Tyrants_will_always_fall&utm_medium=email&utm_term=0_636f315e88-3b33420792-142027269#QIGXxwlkBaqs).
 
-How prepared are we?
+***How prepared are we?***
 
 [Click here for Wildfire Safety from the Red Cross](http://www.redcross.org/get-help/how-to-prepare-for-emergencies/types-of-emergencies/wildfire).
 
