@@ -13,5 +13,5 @@ Excerpted from [**[Mashable](http://mashable.com/about/)**]:
 
 ***How prepared are we?***
 
-[Click here for Wildfire Safety from the Red Cross](http://www.redcross.org/get-help/how-to-prepare-for-emergencies/types-of-emergencies/wildfire).
+[**Click here** for **"Wildfire Safety"** from the **Red Cross**](http://www.redcross.org/get-help/how-to-prepare-for-emergencies/types-of-emergencies/wildfire).
 
