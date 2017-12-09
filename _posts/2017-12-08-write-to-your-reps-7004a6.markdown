@@ -3,7 +3,9 @@ title: Write to Your Reps
 date: 2017-12-08 17:02:00 -08:00
 ---
 
+[Democracy.io](https://democracy.io/#!/)
 
+This is such a cool site - they help you write your letter and automatically send it to your reps.
 
 https://democracy.io/#!/
 
