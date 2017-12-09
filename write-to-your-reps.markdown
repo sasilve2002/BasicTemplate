@@ -3,7 +3,7 @@ title: Write to Your Reps
 date: 2017-12-08 17:12:00 -08:00
 ---
 
-From [Democracy.io](https://democracy.io/#!/) : 
+From [**Democracy.io**](https://democracy.io/#!/) : 
 
 "  **Failure** to effectively **reach** members of **Congress** has **disastrous** consequences. Studies show that politicians fundamentally **misconceive their constituents’ views**, making it harder for them to represent us in the lawmaking process.  "
 
