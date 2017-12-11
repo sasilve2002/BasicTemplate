@@ -10,9 +10,9 @@ From: Indivisible East Bay and Indivisible San Francisco
 Date: December 8, 2017
 Subject: The **DREAM Act Pledge**
 
-Senator **Feinstein** cast the **wrong vote**, but she has another chance to fight for DREAMers
+Senator **Feinstein** cast the **wrong vote**, but she has another chance to fight for **DREAMers**
 
-Last night, Senator Feinstein disappointed her constituents by voting to leave DREAMers hanging in limbo for two more weeks. While Republicans have been dismantling health care and pushing their tax scam, Senator Feinstein agreed to a two-week continuing resolution to keep the government running—without demanding anything in return.
+Last night, Senator **Feinstein** disappointed her constituents by voting to **leave DREAMers hanging in limbo** for two more weeks. While Republicans have been dismantling health care and pushing their tax scam, Senator Feinstein agreed to a two-week continuing resolution to keep the government running—**without demanding anything in return**.
 
 Senator Harris and most House Democrats voted NO on the two-week extension of government funding, because it doesn't include much-needed protections for DACA youth. More of these young people are losing their status every day, and all of them are living in fear of losing it soon. Each day's delay means 122 immigrants lose their work permits. By December 22, that's 1,708 more young men and women forced back into the shadows.
 
