@@ -5,6 +5,8 @@ date: 2017-12-11 06:37:00 -08:00
 
 Excerpted from  [**Indivisible East Bay**](https://indivisibleeb.org/) and [**Indivisible San Francisco**](http://www.indivisiblesf.org/)
 
+[***Nothing Rhymes with Orange has signed this letter, too***.]
+
 "  **To**: [Senator Dianne **Feinstein**](https://www.feinstein.senate.gov/public/)
 
 **From**: Indivisible East Bay and Indivisible San Francisco
