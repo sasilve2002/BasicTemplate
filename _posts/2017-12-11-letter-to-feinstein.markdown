@@ -5,7 +5,7 @@ date: 2017-12-11 06:37:00 -08:00
 
 Excerpted from  [**Indivisible East Bay**](https://indivisibleeb.org/) and [**Indivisible San Francisco**](http://www.indivisiblesf.org/)
 
-"  To: Senator Dianne **Feinstein**
+"  To: [Senator Dianne **Feinstein**](https://www.feinstein.senate.gov/public/)
 From: Indivisible East Bay and Indivisible San Francisco
 Date: December 8, 2017
 Subject: The **DREAM Act Pledge**
