@@ -6,6 +6,6 @@ published: false
 
 From [**Countable**](https://www.countable.us/articles/734-s-congress-voting-week-july-10-2017) :
 
-[**Click here** to go to a cool website](https://www.countable.us/articles/734-s-congress-voting-week-july-10-2017) which **keeps track** of **what bills Congress is voting** on any given week!  You get a chance to **send your vote to your rep automatically** !
+[**Click here** to go to a cool website](https://www.countable.us/) which **keeps track** of **what bills Congress is voting** on any given week!  You get a chance to **send your vote to your rep automatically** !
 
 
