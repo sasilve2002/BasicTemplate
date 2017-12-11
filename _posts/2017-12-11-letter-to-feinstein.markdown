@@ -3,14 +3,14 @@ title: Letter to Feinstein
 date: 2017-12-11 06:37:00 -08:00
 ---
 
-Excerpted from  [Indivisible East Bay](https://indivisibleeb.org/) and [Indivisible San Francisco](http://www.indivisiblesf.org/)
+Excerpted from  [**Indivisible East Bay**](https://indivisibleeb.org/) and [**Indivisible San Francisco**](http://www.indivisiblesf.org/)
 
-To: Senator Dianne Feinstein
+"  To: Senator Dianne **Feinstein**
 From: Indivisible East Bay and Indivisible San Francisco
 Date: December 8, 2017
-Subject: The DREAM Act Pledge
+Subject: The **DREAM Act Pledge**
 
-Senator Feinstein cast the wrong vote, but she has another chance to fight for DREAMers
+Senator **Feinstein** cast the **wrong vote**, but she has another chance to fight for DREAMers
 
 Last night, Senator Feinstein disappointed her constituents by voting to leave DREAMers hanging in limbo for two more weeks. While Republicans have been dismantling health care and pushing their tax scam, Senator Feinstein agreed to a two-week continuing resolution to keep the government running—without demanding anything in return.
 
@@ -22,4 +22,4 @@ Senator Feinstein knows we should have passed a clean DREAM Act months ago (year
 
 To make the DREAM Act law, Democrats need to demonstrate their strength. The senators from California, who represent nearly a third of DACA recipients, must demonstrate to Paul Ryan and Mitch McConnell—not just with words or Tweets, but with votes—that if they want to deport 800,000 young people, who want nothing more than to contribute their energy and talent to their home country—along with $433 billion to the national GDP—they will have to shut down the government to do it!
 
-Senator Feinstein, please remember: No Dream-No Deal.
+Senator Feinstein, please remember: No Dream-No Deal.  "
