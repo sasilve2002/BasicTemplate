@@ -22,4 +22,4 @@ Senator Feinstein knows we should have passed a clean DREAM Act months ago (year
 
 To make the DREAM Act law, **Democrats need to demonstrate their strength**. The **senators from California**, who represent nearly a **third of DACA recipients**, must demonstrate to Paul Ryan and Mitch McConnell—not just with words or Tweets, but with votes—that **if they want to deport 800,000 young people, who want nothing more than to contribute their energy and talent to their home country—along with $433 billion to the national GDP—they will have to shut down the government to do it!**
 
-Senator Feinstein, please remember: No Dream-No Deal.  "
+Senator Feinstein, please remember: **No Dream-No Deal**.  "
