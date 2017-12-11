@@ -9,7 +9,7 @@ Excerpted from  [**Indivisible East Bay**](https://indivisibleeb.org/) and [**In
 
 "  **To**: [Senator Dianne **Feinstein**](https://www.feinstein.senate.gov/public/)
 
-**From**: Indivisible East Bay and Indivisible San Francisco
+**From**: [Indivisible East Bay](https://indivisibleeb.org/) and Indivisible San Francisco
 
 **Date**: December 8, 2017
 
