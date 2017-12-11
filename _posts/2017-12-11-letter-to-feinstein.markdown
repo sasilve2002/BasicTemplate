@@ -13,7 +13,7 @@ Excerpted from  [**Indivisible East Bay**](https://indivisibleeb.org/) and [**In
 
 **Date**: December 8, 2017
 
-**Subject**: The **DREAM Act Pledge**
+**Subject**: The **[DREAM Act Pledge](https://www.dreamerpledge.org/)**
 
 Senator **Feinstein** cast the **wrong vote**, but she has another chance to fight for **DREAMers**
 
