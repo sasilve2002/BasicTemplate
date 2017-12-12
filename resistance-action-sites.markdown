@@ -52,6 +52,6 @@ THE GROUPS REJUVENATING THE DEMOCRATS
 
 [**LABOR FOR OUR REVOLUTION**](https://actionnetwork.org/groups/labor-for-bernie) grew out of Labor for Bernie, a coalition of union members who backed Sanders in 2016. They recently launched a campaign with organizations such as JUSTICE DEMOCRATS and NATIONAL NURSES UNITED to pressure Democrats in Congress to sign on to a progressive People’s Platform.
 
-[DEMOCRATIC SOCIALISTS OF AMERICA](http://www.dsausa.org/), founded in 1982, has more than doubled its membership since the election, becoming the nation’s largest socialist organization, with over 120 chapters. The group has developed a plan to help progressives win local elections and to build support for national political change.
+[**DEMOCRATIC SOCIALISTS OF AMERICA**](http://www.dsausa.org/), founded in 1982, has more than doubled its membership since the election, becoming the nation’s largest socialist organization, with over 120 chapters. The group has developed a plan to help progressives win local elections and to build support for national political change.
 
 WORKING FAMILIES PARTY, created two decades ago in New York City to push the state Democrats to the left, has since expanded to a dozen other states and created a national membership. It endorses and runs candidates and builds community-labor coalitions to press for progressive policies.
