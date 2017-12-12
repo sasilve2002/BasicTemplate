@@ -48,7 +48,7 @@ THE GROUPS REJUVENATING THE DEMOCRATS
 
 [**BRAND NEW CONGRESS**](http://brandnewcongress.org/), a political action committee established by former staffers and supporters of Bernie Sanders’ campaign, works to elect Democrats to Congress who support Sanders’ policies and platform, even if that means opposing sitting Democrats in party primaries.
 
-[THE MOVEMENT FOR BLACK LIVES](https://policy.m4bl.org/), which began as a protest movement against police violence in 2013, is still in the streets, but it has begun focusing on get-out-the-vote drives and local electoral campaigns, such as the race for Philadelphia district attorney.
+[**THE MOVEMENT FOR BLACK LIVES**](https://policy.m4bl.org/), which began as a protest movement against police violence in 2013, is still in the streets, but it has begun focusing on get-out-the-vote drives and local electoral campaigns, such as the race for Philadelphia district attorney.
 
 LABOR FOR OUR REVOLUTION grew out of Labor for Bernie, a coalition of union members who backed Sanders in 2016. They recently launched a campaign with organizations such as JUSTICE DEMOCRATS and NATIONAL NURSES UNITED to pressure Democrats in Congress to sign on to a progressive People’s Platform.
 
