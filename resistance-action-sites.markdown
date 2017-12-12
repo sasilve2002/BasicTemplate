@@ -42,9 +42,9 @@ THE GROUPS REJUVENATING THE DEMOCRATS
 
 [**RUN FOR SOMETHING**](https://www.runforsomething.net/) focuses on recruiting and mentoring younger people to run in down-ballot races.
 
-[EMILY’S LIST](https://www.emilyslist.org/) recruits and trains pro-choice female Democratic candidates. The 32-year-old group has seen an explosion of interest since the election, with more than 17,000 women signing up for its “Run to Win” training program. As a result, the organization has tripled its state and local staff operations.
+[**EMILY’S LIST**](https://www.emilyslist.org/) recruits and trains pro-choice female Democratic candidates. The 32-year-old group has seen an explosion of interest since the election, with more than 17,000 women signing up for its “Run to Win” training program. As a result, the organization has tripled its state and local staff operations.
 
-OUR REVOLUTION was created by Sen. Bernie Sanders to sustain the momentum of the his 2016 campaign. It claims some 400 local chapters and focuses on taking control of the Democratic Party and on supporting progressive candidates in the vast number of state and local races that normally get little attention.
+[OUR REVOLUTION](https://ourrevolution.com/) was created by Sen. Bernie Sanders to sustain the momentum of the his 2016 campaign. It claims some 400 local chapters and focuses on taking control of the Democratic Party and on supporting progressive candidates in the vast number of state and local races that normally get little attention.
 
 BRAND NEW CONGRESS, a political action committee established by former staffers and supporters of Bernie Sanders’ campaign, works to elect Democrats to Congress who support Sanders’ policies and platform, even if that means opposing sitting Democrats in party primaries.
 
