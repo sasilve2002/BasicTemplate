@@ -7,5 +7,5 @@ Excerpted from [**Common Dreams**](https://www.commondreams.org/?utm_term=Common
 
 "  In addition to making their voices heard in the streets, defenders of net neutrality have planned a massive online demonstration this week ahead of the FCC's scheduled vote on chairman Ajit Pai's deeply unpopular plan to kill the open internet, which critics have denounced as "naked corporatism."
 
-[Click here for our action.](https://www.battleforthenet.com/july12/)
+[**Click here for our action**.](https://www.battleforthenet.com/july12/)
 
