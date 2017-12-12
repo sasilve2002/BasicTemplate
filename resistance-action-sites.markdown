@@ -36,9 +36,9 @@ THE GROUPS REJUVENATING THE DEMOCRATS
 
 [**SWING LEFT**](https://swingleft.org/) coordinates funding and volunteers to help Democrats win Republican-held seats in swing districts. It has targeted 64 House seats for the 2018 mid-terms.
 
-[INDIVISIBLE](https://www.indivisible.org/), a virtually self-organized national effort, began as a Google Doc after the 2016 election. It has attracted a good many experienced political professionals, and it concentrates on blocking Trump’s federal initiatives.
+[**INDIVISIBLE**](https://www.indivisible.org/), a virtually self-organized national effort, began as a Google Doc after the 2016 election. It has attracted a good many experienced political professionals, and it concentrates on blocking Trump’s federal initiatives.
 
-THE SISTER DISTRICT PROJECT works on electing Democrats to state legislatures. It claims some 25,000 volunteers in 50 states.
+[**THE SISTER DISTRICT PROJECT**](https://www.sisterdistrict.com/) works on electing Democrats to state legislatures. It claims some 25,000 volunteers in 50 states.
 
 RUN FOR SOMETHING focuses on recruiting and mentoring younger people to run in down-ballot races.
 
