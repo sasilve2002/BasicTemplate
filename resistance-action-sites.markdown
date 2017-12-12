@@ -54,4 +54,4 @@ THE GROUPS REJUVENATING THE DEMOCRATS
 
 [**DEMOCRATIC SOCIALISTS OF AMERICA**](http://www.dsausa.org/), founded in 1982, has more than doubled its membership since the election, becoming the nation’s largest socialist organization, with over 120 chapters. The group has developed a plan to help progressives win local elections and to build support for national political change.
 
-[WORKING FAMILIES PARTY](http://workingfamilies.org/), created two decades ago in New York City to push the state Democrats to the left, has since expanded to a dozen other states and created a national membership. It endorses and runs candidates and builds community-labor coalitions to press for progressive policies.
+[**WORKING FAMILIES PARTY**](http://workingfamilies.org/), created two decades ago in New York City to push the state Democrats to the left, has since expanded to a dozen other states and created a national membership. It endorses and runs candidates and builds community-labor coalitions to press for progressive policies.
