@@ -46,7 +46,7 @@ THE GROUPS REJUVENATING THE DEMOCRATS
 
 [**OUR REVOLUTION**](https://ourrevolution.com/) was created by Sen. Bernie Sanders to sustain the momentum of the his 2016 campaign. It claims some 400 local chapters and focuses on taking control of the Democratic Party and on supporting progressive candidates in the vast number of state and local races that normally get little attention.
 
-[BRAND NEW CONGRESS](http://brandnewcongress.org/), a political action committee established by former staffers and supporters of Bernie Sanders’ campaign, works to elect Democrats to Congress who support Sanders’ policies and platform, even if that means opposing sitting Democrats in party primaries.
+[**BRAND NEW CONGRESS**](http://brandnewcongress.org/), a political action committee established by former staffers and supporters of Bernie Sanders’ campaign, works to elect Democrats to Congress who support Sanders’ policies and platform, even if that means opposing sitting Democrats in party primaries.
 
 THE MOVEMENT FOR BLACK LIVES, which began as a protest movement against police violence in 2013, is still in the streets, but it has begun focusing on get-out-the-vote drives and local electoral campaigns, such as the race for Philadelphia district attorney.
 
