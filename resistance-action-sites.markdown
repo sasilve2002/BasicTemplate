@@ -40,7 +40,7 @@ THE GROUPS REJUVENATING THE DEMOCRATS
 
 [**THE SISTER DISTRICT PROJECT**](https://www.sisterdistrict.com/) works on electing Democrats to state legislatures. It claims some 25,000 volunteers in 50 states.
 
-RUN FOR SOMETHING focuses on recruiting and mentoring younger people to run in down-ballot races.
+[**RUN FOR SOMETHING**](https://www.runforsomething.net/) focuses on recruiting and mentoring younger people to run in down-ballot races.
 
 EMILY’S LIST recruits and trains pro-choice female Democratic candidates. The 32-year-old group has seen an explosion of interest since the election, with more than 17,000 women signing up for its “Run to Win” training program. As a result, the organization has tripled its state and local staff operations.
 
