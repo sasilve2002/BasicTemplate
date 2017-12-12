@@ -30,9 +30,9 @@ published: false
 
 [**https://dailyaction.org/book-club/** : book club with dialogues with authors](https://dailyaction.org/book-club/)
 
-More Groups:
+***More Groups***:
 
-THE GROUPS REJUVENATING THE DEMOCRATS
+**THE GROUPS REJUVENATING THE DEMOCRATS**
 
 [**SWING LEFT**](https://swingleft.org/) coordinates funding and volunteers to help Democrats win Republican-held seats in swing districts. It has targeted 64 House seats for the 2018 mid-terms.
 
