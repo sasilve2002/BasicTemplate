@@ -7,6 +7,7 @@ Excerpted from [**Daily Kos**](https://www.dailykos.com/) :
 
 "  **Republicans** are **rushing** the GOP Corporate **Tax Scam** through before Doug Jones can be seated. "
 
+***Our Action*** :
 **Call** 
 
 Senator **Feinstein** : **(415) 393-0707**
