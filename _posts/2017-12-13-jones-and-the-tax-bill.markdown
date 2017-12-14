@@ -9,11 +9,11 @@ Excerpted from [**Daily Kos**](https://www.dailykos.com/) :
 
 "  **Call** 
 
-Senator Feinstein : (415) 393-0707
+Senator **Feinstein** : **(415) 393-0707**
 
-Senator Harris : (202) 224-3553
+Senator **Harris** : **(202) 224-3553**
 
-Representative Lee : (202) 225-2661
+Representative **Lee** : **(202) 225-2661**
 
 
 ***Sample script***:
