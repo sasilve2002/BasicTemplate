@@ -21,6 +21,8 @@ Excerpted from the [**Tax March**](https://taxmarch.org/):
 
 [**Click here** for detailed instructions and our action](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/).
 
+**Give it a try!**
+
 *Please contact me if you have any questions*:
 
 Susan Silverman
