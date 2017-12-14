@@ -3,11 +3,11 @@ title: Tax Scam Final Votes
 date: 2017-12-14 07:07:00 -08:00
 ---
 
-This is a phone action.  You can do this action using your computer and cell phone or you can use only your cell phone.  
+This is a phone action.  You can do this action using your computer and cell phone or you can use only your cell phone or land line.  
 
 If you haven't tried phone banks, don't let this scare you off.
 
-The phone bank itself is from [Indivisible](https://www.indivisible.org/)
+[Indivisible](https://www.indivisible.org/) feels phone banks are very effective, and this is their action.
 
 Excerpted from the [**Tax March**](https://taxmarch.org/):
 
