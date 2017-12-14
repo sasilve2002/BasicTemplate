@@ -1,5 +1,5 @@
 ---
-title: Jones & the Tax Bill
+title: Doug Jones & the Tax Bill
 date: 2017-12-13 21:07:00 -08:00
 ---
 
