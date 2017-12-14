@@ -15,7 +15,6 @@ Senator **Harris** : **(202) 224-3553**
 
 Representative **Lee** : **(202) 225-2661**
 
-
 ***Sample script***:
 
 **Hi, My name is __________ and I'm calling from Oakland {zipcode}.  Please, NO TAX VOTE UNTIL DOUG JONES IS SEATED!  Thank you.**  
