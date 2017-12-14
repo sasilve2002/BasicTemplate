@@ -3,6 +3,12 @@ title: Tax Scam Final Votes
 date: 2017-12-14 07:07:00 -08:00
 ---
 
+This is a phone action.  You can do this action using your computer and cell phone or you can use only your cell phone.  
+
+If you haven't tried phone banks, don't let this scare you off.
+
+The phone bank itself is from [Indivisible](https://www.indivisible.org/)
+
 Excerpted from the [**Tax March**](https://taxmarch.org/):
 
 "  We’re getting reports that the **FINAL votes** on the **tax scam bill** in the **House** and **Senate** will happen **early next week**, with Democratic Senator-elect **Doug Jones’ victory** in Alabama this week only making **Republicans** even more anxious to **rush it to a vote**.
