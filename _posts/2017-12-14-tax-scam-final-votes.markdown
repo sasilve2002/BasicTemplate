@@ -13,4 +13,4 @@ Excerpted from the [**Tax March**](https://taxmarch.org/):
 
 "  Get in touch with a **constituent in a key state** and encourage them to **contact their Republican senators** right now.  "
 
-[Click here for detailed instructions and our action](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/).
+[**Click here** for detailed instructions and our action](https://www.trumptaxscam.org/calls-to-kill-the-tax-scam/).
