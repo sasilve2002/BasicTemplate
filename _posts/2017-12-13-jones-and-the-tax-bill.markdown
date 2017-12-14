@@ -7,4 +7,11 @@ Excerpted from [**Daily Kos**](https://www.dailykos.com/) :
 
 "  **Republicans** are **rushing** the GOP Corporate **Tax Scam** through before Doug Jones can be seated. "
 
-"  **Call** your members of the **Senate** or the **House** at **(202) 224-3121**, and tell them **NO TAX VOTE UNTIL JONES IS SEATED!**
+"  **Call** 
+Senator Feinstein : (415) 393-0707
+Senator Harris : (202) 224-3553
+Representative Lee : (202) 225-2661
+
+***Sample script***:
+
+**Hi, My name is __________ and I'm calling from Oakland {zipcode}.  Please, NO TAX VOTE UNTIL DOUG JONES IS SEATED!  Thank you.**  
