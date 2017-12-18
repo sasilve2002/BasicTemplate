@@ -27,8 +27,8 @@ More from [**Indivisible**](https://www.indivisible.org/):
 
 What is a [***Continuing Resolution***](https://www.indivisible.org/resource/legislative-process-101-continuing-resolutions-bare-minimum/)
 
-[***Seating** Doug **Jones** in the **Senate Explained***](https://www.indivisible.org/resource/seating-doug-jones-senate-explained/).
-
+[**Seating Doug Jones in the Senate Explained**.
+](https://www.indivisible.org/resource/seating-doug-jones-senate-explained/)
 [***What is a Conference Committee?***](https://www.indivisible.org/resource/legislative-process-101-conference-committee/) 
 
 
