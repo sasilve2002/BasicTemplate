@@ -24,7 +24,7 @@ Excerpted from the [**Tax March**](https://taxmarch.org/):
 **Give it a try!**
 
 More from [**Indivisible**](https://www.indivisible.org/)
-What is a [Continuing Resolution](https://www.indivisible.org/resource/legislative-process-101-continuing-resolutions-bare-minimum/)
+What is a [***Continuing Resolution***](https://www.indivisible.org/resource/legislative-process-101-continuing-resolutions-bare-minimum/)
 
 *Please contact me if you have any questions*:
 
