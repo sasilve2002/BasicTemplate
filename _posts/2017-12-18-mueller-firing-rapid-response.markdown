@@ -9,4 +9,4 @@ Excerpted from [**MoveOn.org**](https://front.moveon.org/) :
 
 "  Donald **Trump** is publicly considering **firing** special counsel Robert **Mueller** ... This would be a **constitutional crisis** for our country ... **Our response** in the minutes and hours following a power grab **will dictate what happens next.**  "
 
-[**Click here to sign up for the Rapid Response**](https://act.moveon.org/event/mueller-firing-rapid-response-events/search/).
+[**Click here to sign up for the Rapid Response rally**](https://act.moveon.org/event/mueller-firing-rapid-response-events/search/).
