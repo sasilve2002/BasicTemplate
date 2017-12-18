@@ -1,6 +1,7 @@
 ---
 title: Doug Jones & the Tax Bill
 date: 2017-12-13 21:07:00 -08:00
+published: false
 ---
 
 Excerpted from [**Daily Kos**](https://www.dailykos.com/) :
