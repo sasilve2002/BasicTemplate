@@ -7,6 +7,6 @@ Excerpted from [**MoveOn.org**](https://front.moveon.org/) :
 
 "  **[NOBODY IS ABOVE THE LAW—MUELLER FIRING RAPID RESPONSE](https://www.trumpisnotabovethelaw.org/event/mueller-firing-rapid-response/search/?from=@)**  "
 
-"  Donald **Trump** is publicly considering **firing** special counsel Robert **Mueller** ... This would be a **constitutional crisis** for our country ... **Our response** in the minutes and hours following a power grab **will dictate what happens next.**  "
+"  Donald **[Trump** is publicly considering **firing](https://www.vice.com/en_us/article/d348jz/firing-mueller-is-so-crazy-trump-actually-might-do-it)** special counsel Robert **Mueller** ... This would be a **constitutional crisis** for our country ... **Our response** in the minutes and hours following a power grab **will dictate what happens next.**  "
 
 [**Click here to sign up for the *Rapid Response* rally**](https://act.moveon.org/event/mueller-firing-rapid-response-events/search/).
