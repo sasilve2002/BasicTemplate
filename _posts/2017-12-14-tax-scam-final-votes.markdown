@@ -29,6 +29,8 @@ What is a [***Continuing Resolution***](https://www.indivisible.org/resource/leg
 
 [**Seating** Doug **Jones** in the **Senate Explained**](https://www.indivisible.org/resource/seating-doug-jones-senate-explained/).
 
+[What is a Conference Committee?](https://www.indivisible.org/resource/legislative-process-101-conference-committee/) 
+
 
 
 
