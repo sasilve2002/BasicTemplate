@@ -16,7 +16,11 @@ The [**Alameda County Democratic Party Chair**,  **Robin Torello**](https://www.
 **7:30-9:00 pm**
 
 For meeting address,
+
 please **RSVP** to:
+
 Susan Silverman
+
 sasilve2002@gmail.com
+
 510-816-3303
