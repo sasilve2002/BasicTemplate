@@ -7,13 +7,13 @@ The [**Alameda County Democratic Party Chair**,  **Robin Torello**](https://www.
 
 ***Please note:  because Ms. Torello is unavailable on Tuesday evenings, we are changing our next meeting date to accommodate her schedule:***
 
-Next Meeting
+**Next Meeting
 Wednesday,
 Jan. 10, 2018
-7:30-9:00 pm
+7:30-9:00 pm**
 
 For meeting address,
-please RSVP to:
+please **RSVP** to:
 Susan Silverman
 sasilve2002@gmail.com
 510-816-3303
