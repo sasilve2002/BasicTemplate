@@ -5,6 +5,8 @@ date: 2017-12-22 06:35:00 -08:00
 
 Excerpted from [**5 Calls**](https://5calls.org/issue/pressure-governors-support-chip) :
 
+"  While Republicans in Congress focus on ramming through their unpopular tax plan, two critical sources of healthcare for vulnerable Americans are still awaiting funding reauthorization. On September 30th, funding expired for both the Children’s Health Insurance Program and the Community Health Centers Fund.  "
+
 ***MESSAGE TO GOVERNORS: PRESSURE CONGRESS TO FUND CHIP AND COMMUNITY HEALTH CENTERS***
 
 [***Clilck here to email Governor Brown***](https://govapps.gov.ca.gov/gov39mail/).
