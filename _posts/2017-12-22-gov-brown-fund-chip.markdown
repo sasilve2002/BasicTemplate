@@ -13,10 +13,10 @@ Excerpted from [**5 Calls**](https://5calls.org/issue/pressure-governors-support
 
 **Sample Script**:
 
-*I am a constituent from Oakland [zip].
-I'm writing to encourage Governor Brown to join the bipartisan group of governors pressuring Congress to pass a clean CHIP funding reauthorization bill. I also urge the governor to advocate for renewal of the Community Health Centers Fund. Both programs provide critical healthcare access to some of the most vulnerable residents of California.*
+***I am a constituent from Oakland [zip].
+I'm writing to encourage Governor Brown to join the bipartisan group of governors pressuring Congress to pass a clean CHIP funding reauthorization bill. I also urge the governor to advocate for renewal of the Community Health Centers Fund. Both programs provide critical healthcare access to some of the most vulnerable residents of California**.*
 
-*Thank you for your time, and Happy New Year!*
+***Thank you for your time, and Happy New Year!***
 
-*Sincerely,
+***Sincerely**,
 [Your name}*
