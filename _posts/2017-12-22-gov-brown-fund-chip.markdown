@@ -9,7 +9,7 @@ Excerpted from [**5 Calls**](https://5calls.org/issue/pressure-governors-support
 
 ***MESSAGE TO GOVERNORS: PRESSURE CONGRESS TO FUND CHIP AND COMMUNITY HEALTH CENTERS***
 
-[***Clilck here to email Governor Brown***](https://govapps.gov.ca.gov/gov39mail/).
+[***Clilck here to email Governor Brown***](https://govapps.gov.ca.gov/gov39mail/).  Under "PLEASE CHOOSE YOUR SUBJECT," choose "Health and Services Agency".
 
 **Sample Script**:
 
