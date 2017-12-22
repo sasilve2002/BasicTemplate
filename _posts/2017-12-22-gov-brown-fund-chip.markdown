@@ -5,7 +5,7 @@ date: 2017-12-22 06:35:00 -08:00
 
 ***MESSAGE TO GOVERNORS: PRESSURE CONGRESS TO FUND CHIP AND COMMUNITY HEALTH CENTERS***
 
-[Clilck here to email Governor Brown](https://govapps.gov.ca.gov/gov39mail/).
+[***Clilck here to email Governor Brown***](https://govapps.gov.ca.gov/gov39mail/).
 
 Sample Script:
 
