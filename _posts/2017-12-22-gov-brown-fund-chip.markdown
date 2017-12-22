@@ -3,6 +3,8 @@ title: Gov. Brown - Fund CHIP
 date: 2017-12-22 06:35:00 -08:00
 ---
 
+Excerpted from [**5 Calls**](https://5calls.org/issue/pressure-governors-support-chip) :
+
 ***MESSAGE TO GOVERNORS: PRESSURE CONGRESS TO FUND CHIP AND COMMUNITY HEALTH CENTERS***
 
 [***Clilck here to email Governor Brown***](https://govapps.gov.ca.gov/gov39mail/).
