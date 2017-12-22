@@ -20,4 +20,4 @@ I'm writing to encourage Governor Brown to join the bipartisan group of governor
 
 ***Sincerely**,
 
-[**Your name**}*
+**[*Your name*}**
