@@ -3,6 +3,8 @@ title: Small Victories
 date: 2017-12-29 07:28:00 -08:00
 ---
 
+Here's a feel-good list of 2017 ***SUCCESSES*** :
+
 Excerpted from [**Peace is Loud**](https://peaceisloud.org/) : 
 
 "Before we go off and do some serious celebrating (aka naps for days), we decided to do a roundup of all that we have accomplished."
