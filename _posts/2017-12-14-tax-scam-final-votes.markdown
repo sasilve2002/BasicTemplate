@@ -1,6 +1,7 @@
 ---
 title: Tax Scam Final Votes
 date: 2017-12-14 07:07:00 -08:00
+published: false
 ---
 
 *This is a **phone action**.  You can do this action using your **computer and cell phone** or you can use **only your cell phone or land line**.*  
