@@ -1,6 +1,7 @@
 ---
 title: SoCal Fires
 date: 2017-12-08 06:01:00 -08:00
+published: false
 ---
 
 Excerpted from **[Mashable](http://mashable.com/about/)**:
