@@ -1,6 +1,7 @@
 ---
 title: ALABAMA WOOHOO !!
 date: 2017-12-13 06:48:00 -08:00
+published: false
 ---
 
 Excerpted from the [**Daily Kos**](https://www.dailykos.com/masthead) :
