@@ -3,7 +3,7 @@ title: 'Megaphone : Walk a Mile'
 date: 2018-01-02 05:20:00 -08:00
 ---
 
-Excerpted from the **[Women's March Oakland](https://womensmarchoakland.org/about-the-march/)**'s "[**Megaphone**](https://womensmarchoakland.org/the-megaphone)": 
+Excerpted from the **[Women's March Oakland](https://womensmarchoakland.org/about-the-march/)**'s "[***Megaphone***](https://womensmarchoakland.org/the-megaphone)": 
 
 "  Ever see a **homeless person** and feel an enormous sense of **helplessness**? Have you ever wondered how you - **just one person** - **could make a difference**? "
 
