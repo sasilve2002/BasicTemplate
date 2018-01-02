@@ -13,6 +13,6 @@ Excerpted from the **[Women's March Oakland](https://womensmarchoakland.org/abou
 
 We will **dine and learn** how we can make a difference. 
 
-**Tickets are $20** and proceeds go to [**The Village in Oakland**](https://www.facebook.com/The-Village-in-Oakland-feedthepeople-731643677003021/) & [**Alpha Omega Foundation**](https://www.facebook.com/alphaomegafoundation/). :
+**Tickets are $20** and proceeds go to [**The Village in Oakland**](https://www.facebook.com/The-Village-in-Oakland-feedthepeople-731643677003021/) & [**Alpha Omega Foundation**](https://www.facebook.com/alphaomegafoundation/). 
 
 [Click here for tickets](https://www.eventbrite.com/e/walk-a-mile-storytelling-by-marginalized-people-tickets-41033926579?aff=es2). 
