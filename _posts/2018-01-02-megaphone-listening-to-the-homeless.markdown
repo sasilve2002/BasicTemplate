@@ -9,6 +9,10 @@ Excerpted from the [Women's March Oakland]'s "[Megaphone](https://womensmarchoak
 
 "  Join [WMO [Women's March Oakland]](https://womensmarchoakland.org/about-the-march/) and [Spirit of Oakland](https://spiritofoakland.com/) as we "[Walk a Mile](https://www.eventbrite.com/e/walk-a-mile-storytelling-by-marginalized-people-tickets-41033926579?aff=es2)" by learning empathetic listening tools. 
 
-[Popular Storytelling](https://www.eventbrite.com/e/walk-a-mile-storytelling-by-marginalized-people-tickets-41033926579?aff=es2) host Ted Lee will set the stage as people living in encampments share their stories. We will dine and learn how we can make a difference. Tickets are $20 and proceeds go to [The Village in Oakland](https://www.facebook.com/The-Village-in-Oakland-feedthepeople-731643677003021/) & [Alpha Omega Foundation](https://www.facebook.com/alphaomegafoundation/).) :
+[Popular Storytelling](https://www.eventbrite.com/e/walk-a-mile-storytelling-by-marginalized-people-tickets-41033926579?aff=es2) host Ted Lee will set the stage as people living in encampments share their stories. 
+
+We will dine and learn how we can make a difference. 
+
+Tickets are $20 and proceeds go to [The Village in Oakland](https://www.facebook.com/The-Village-in-Oakland-feedthepeople-731643677003021/) & [Alpha Omega Foundation](https://www.facebook.com/alphaomegafoundation/).) :
 
 https://www.eventbrite.com/e/walk-a-mile-storytelling-by-marginalized-people-tickets-41033926579?aff=es2
