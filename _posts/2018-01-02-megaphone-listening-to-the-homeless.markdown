@@ -16,11 +16,13 @@ We will **dine and learn** how we can make a difference.
 **Tickets are $20** and proceeds go to [**The Village in Oakland**](https://www.facebook.com/The-Village-in-Oakland-feedthepeople-731643677003021/) & [**Alpha Omega Foundation**](https://www.facebook.com/alphaomegafoundation/). 
 
 ***DATE AND TIME***
+
 Sat, January 6, 2018
 
 5:00 PM – 7:30 PM PST
 
 ***LOCATION***
+
 Oakland's Women's Center
 
 2811 Adeline St Oakland, CA 94608
