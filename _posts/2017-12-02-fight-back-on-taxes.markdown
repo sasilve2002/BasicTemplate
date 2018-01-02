@@ -1,6 +1,7 @@
 ---
 title: Fight for Dream Act
 date: 2017-12-02 06:08:00 -08:00
+published: false
 ---
 
 Excerpted from [**Indivisible**](https://www.indivisible.org/) and [**The Human Rights Campaign**](https://www.hrc.org/) :
