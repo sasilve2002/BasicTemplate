@@ -17,11 +17,13 @@ We will **dine and learn** how we can make a difference.
 
 ***DATE AND TIME***
 
+
 Sat, January 6, 2018
 
 5:00 PM – 7:30 PM PST
 
 ***LOCATION***
+
 
 Oakland's Women's Center
 
