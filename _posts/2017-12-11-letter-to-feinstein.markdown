@@ -1,6 +1,7 @@
 ---
 title: Letter to Feinstein
 date: 2017-12-11 06:37:00 -08:00
+published: false
 ---
 
 Excerpted from  [**Indivisible East Bay**](https://indivisibleeb.org/) and [**Indivisible San Francisco**](http://www.indivisiblesf.org/)
