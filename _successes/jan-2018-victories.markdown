@@ -34,6 +34,6 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 11. In the first year since **New Jersey** got rid of [**cash bail**](https://whyy.org/segments/one-year-since-n-j-ditched-cash-bail-heres-going/?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269), county jail populations **dropped** by 17%. 🙌
 
-12. 18 states are raising the minimum wage this year. You can check to see if your state is on the list here.
+12. **18 states** are [**raising the minimum wage**](https://www.cbsnews.com/news/higher-minimum-wage-come-to-18-states/?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) this year. [**You can check****** to see if **your state** is on the list here](https://www.inc.com/huffington-post/minimum-wage-changes-new-law-2018.html?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269).
 
 13. A court ruled that an Obama-era regulation helping low-income families in 23 metropolitan areas would go into effect on January 1st.
