@@ -32,7 +32,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 10. A [**new law**](http://fortune.com/2018/01/02/illegal-to-pay-men-more-than-women-iceland/?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) that makes it [illegal](http://fortune.com/2018/01/02/illegal-to-pay-men-more-than-women-iceland/?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) to **pay men more** than women just went into effect in **Iceland**. #EverywhereNowPlease
 
-11. In the first year since New Jersey got rid of cash bail, county jail populations dropped by 17%. 🙌
+11. In the first year since **New Jersey** got rid of [**cash bail**](https://whyy.org/segments/one-year-since-n-j-ditched-cash-bail-heres-going/?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269), county jail populations dropped by 17%. 🙌
 
 12. 18 states are raising the minimum wage this year. You can check to see if your state is on the list here.
 
