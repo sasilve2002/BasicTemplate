@@ -26,7 +26,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
  
 “Students like our client, who conscientiously carry their values and ideals with them, cannot be silenced.”
 
-8. Women in Hollywood launched Time’s Up, a huge initiative to combat sexual harassment with a legal defense fund to help low-income women working in a variety of fields—including the farmworkers who stood in solidarity with actresses a few months ago.
+8. Women in Hollywood launched **[Time’s Up](https://www.timesupnow.com/)**, a huge initiative to combat sexual harassment with a legal defense fund to help low-income women working in a variety of fields—including the farmworkers who stood in solidarity with actresses a few months ago.
 
 9. We’re also happy to report (pun intended!) that the Hollywood Reporter has assigned seven reporters to a brand new sexual misconduct beat. 📰 👍
 
