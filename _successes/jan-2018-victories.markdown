@@ -9,7 +9,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 ***VICTORIES***!
 
-1. After multiple states refused to participate in **Trump’s** ridiculous and disastrous **investigation** into a crime that does not exist, he finally **dissolved his ruse of a voter fraud commission**.
+1. After multiple states refused to participate in **Trump’s** ridiculous and disastrous **investigation** into a crime that does not exist, he finally **[dissolved his ruse of a voter fraud commission](https://www.nytimes.com/2018/01/03/us/politics/trump-voter-fraud-commission.html?utm_source=Small%2BVictories%2BNewsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269&_r=0&auth=login-email)**.
 
 2. **Newark, NJ** is pushing back against the FCC’s net neutrality decision by keeping its fiber-optic internet connection **net neutral**. #GoodOptics
 
