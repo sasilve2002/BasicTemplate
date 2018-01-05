@@ -17,14 +17,12 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 4. In our end of year recap, we said 16,000 **women** told Emily’s List they want to **run for office**, but the updated number is actually way higher — **25,000**, to be exact.
  
-
-
 5. Thanks to a new law, people in **California** will **no longer** have to **disclose** previous **criminal history** or past **salaries** to potential employers.
 
 6. Mike **Pence’s** Coloradan neighbors **welcomed** him in the best way possible while he was on a visit to their great state last week.
 [**Click here for the Chicago Trib article**.](http://www.chicagotribune.com/news/nationworld/ct-mike-pence-neighbors-20171230-story.html)
 
-7. Another California victory: A court ruled that a student athlete can’t be forced to stand for the national anthem. As the student’s lawyer said,
+7. Another **California** victory: A court ruled that a **student athlete can’t be forced to stand for the national anthem**. As the student’s lawyer said,
  
 “Students like our client, who conscientiously carry their values and ideals with them, cannot be silenced.”
 
