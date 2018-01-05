@@ -13,7 +13,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 2. **Newark, NJ** is pushing back against the FCC’s net neutrality decision by [keeping its fiber-optic internet connection](https://www.axios.com/newark-commits-to-keeping-its-fiber-network-net-neutral-2519349873.html?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) **net neutral**. #GoodOptics
 
-3. **New York** and **California**’s governors **pardoned** more than 20 **immigrants** so they **won’t be deported**, including a transgender activist who can now apply for a green card with her correct gender.
+3. **New York** and **California**’s governors **[pardoned](https://www.nytimes.com/2017/12/27/nyregion/trump-cuomo-pardons-immigrants.html?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269)** more than 20 **immigrants** so they **won’t be deported**, including a transgender activist who can now apply for a green card with her correct gender.
 
 4. In our end of year recap, we said 16,000 **women** told Emily’s List they want to **run for office**, but the [updated number](http://thehill.com/blogs/blog-briefing-room/365855-emilys-list-25000-women-have-reached-out-to-us-to-run-for-office?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) is actually way higher — **25,000**, to be exact.
  
