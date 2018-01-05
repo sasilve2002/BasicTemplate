@@ -22,7 +22,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 6. Mike **Pence’s** Coloradan neighbors **welcomed** him in the best way possible while he was on a visit to their great state last week.
 [**Click here for the Chicago Trib article**.](http://www.chicagotribune.com/news/nationworld/ct-mike-pence-neighbors-20171230-story.html)
 
-7. Another **California** victory: A court ruled that a **student athlete can’t be forced to stand for the national anthem**. As the student’s lawyer said,
+7. Another **California** victory: A court ruled that a **[student athlete can’t be forced to stand for the national anthem](http://www.latimes.com/local/lanow/la-me-ln-student-athlete-kneel-20171229-story.html?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269)**. As the student’s lawyer said,
  
 “Students like our client, who conscientiously carry their values and ideals with them, cannot be silenced.”
 
