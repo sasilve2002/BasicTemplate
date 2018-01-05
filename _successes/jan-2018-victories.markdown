@@ -28,7 +28,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 8. Women in Hollywood launched **[Time’s Up](https://www.timesupnow.com/)**, a huge initiative to combat **sexual harassment** with a **legal defense fund** to help **low-income women** working in a variety of fields—including the farmworkers who stood in solidarity with actresses a few months ago.
 
-9. We’re also happy to report (pun intended!) that the Hollywood Reporter has assigned seven reporters to a brand new sexual misconduct beat. 📰 👍
+9. We’re also happy to report (pun intended!) that the **Hollywood Reporter** has assigned seven reporters to a brand new [**sexual misconduct beat**](https://www.newyorker.com/magazine/2018/01/08/can-hollywood-change-its-ways?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269). 📰 👍
 
 10. A new law that makes it illegal to pay men more than women just went into effect in Iceland. #EverywhereNowPlease
 
