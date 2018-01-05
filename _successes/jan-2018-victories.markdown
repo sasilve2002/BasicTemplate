@@ -30,7 +30,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 9. We’re also happy to report (pun intended!) that the **Hollywood Reporter** has assigned seven reporters to a brand new [**sexual misconduct beat**](https://www.newyorker.com/magazine/2018/01/08/can-hollywood-change-its-ways?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269). 📰 👍
 
-10. A new law that makes it illegal to pay men more than women just went into effect in Iceland. #EverywhereNowPlease
+10. A [**new law**](http://fortune.com/2018/01/02/illegal-to-pay-men-more-than-women-iceland/?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) that makes it [illegal](http://fortune.com/2018/01/02/illegal-to-pay-men-more-than-women-iceland/?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) to **pay men more** than women just went into effect in **Iceland**. #EverywhereNowPlease
 
 11. In the first year since New Jersey got rid of cash bail, county jail populations dropped by 17%. 🙌
 
