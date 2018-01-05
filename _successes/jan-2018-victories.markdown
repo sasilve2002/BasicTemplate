@@ -15,7 +15,7 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/)
 
 3. **New York** and **California**’s governors **pardoned** more than 20 **immigrants** so they **won’t be deported**, including a transgender activist who can now apply for a green card with her correct gender.
 
-4. In our end of year recap, we said 16,000 **women** told Emily’s List they want to **run for office**, but the updated number is actually way higher — **25,000**, to be exact.
+4. In our end of year recap, we said 16,000 **women** told Emily’s List they want to **run for office**, but the [updated number](http://thehill.com/blogs/blog-briefing-room/365855-emilys-list-25000-women-have-reached-out-to-us-to-run-for-office?utm_source=Small+Victories+Newsletter&utm_campaign=fbefd8b4da-EMAIL_CAMPAIGN_2018_01_05&utm_medium=email&utm_term=0_636f315e88-fbefd8b4da-142027269) is actually way higher — **25,000**, to be exact.
  
 5. Thanks to a new law, people in **California** will **no longer** have to **disclose** previous **criminal history** or past **salaries** to potential employers.
 
