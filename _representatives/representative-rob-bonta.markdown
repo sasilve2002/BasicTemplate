@@ -1,5 +1,5 @@
 ---
-title: Representative Rob Bonta
+title: Rep. Rob Bonta (scroll up for his info.)
 date: 2017-05-07 17:40:00 -07:00
 ---
 
