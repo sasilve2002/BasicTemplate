@@ -1,6 +1,7 @@
 ---
 title: 'Megaphone : Walk a Mile'
 date: 2018-01-02 05:20:00 -08:00
+published: false
 ---
 
 Excerpted from the **[Women's March Oakland](https://womensmarchoakland.org/about-the-march/)**'s "[***Megaphone***](https://womensmarchoakland.org/the-megaphone)": 
