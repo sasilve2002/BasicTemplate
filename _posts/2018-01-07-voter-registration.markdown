@@ -8,7 +8,7 @@ date: 2018-01-07 06:52:00 -08:00
 
 Excerpted from [**Democracy Action**](https://demaction.us/?mc_cid=b3dace6678&mc_eid=7ffae608a7) :
 
-Helping **brand new Americans** activate their citizenship by **registering to vote** is one of the most fulfilling activities we can participate in. From countries all over the world, they pour out of the Paramount Theater after taking the oath of allegiance to their new homeland, where we welcome them with an offer to register to vote the same day.
+"  Helping **brand new Americans** activate their citizenship by **registering to vote** is one of the most fulfilling activities we can participate in. From countries all over the world, they pour out of the Paramount Theater after taking the oath of allegiance to their new homeland, where we welcome them with an offer to register to vote the same day.  "
 
 **Thursday, January 11, 2018**
 
