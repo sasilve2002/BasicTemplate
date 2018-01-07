@@ -12,9 +12,9 @@ Excerpted from [**Democracy Action**](https://demaction.us/?mc_cid=b3dace6678&mc
 
 **Thursday, January 11, 2018**
 
-[Join us at **10 am** in front of the **Paramount Theatre** in Oakland. Look for a row of ironing boards on both sides of the entrance. No experience is necessary - we will **train** on site at **10 am**](https://www.eventbrite.com/e/register-new-citizens-to-vote-morning-registration-41259247520?ref=wpevent). 
+"  [Join us at **10 am** in front of the **Paramount Theatre** in Oakland. Look for a row of ironing boards on both sides of the entrance. No experience is necessary - we will **train** on site at **10 am**](https://www.eventbrite.com/e/register-new-citizens-to-vote-morning-registration-41259247520?ref=wpevent).   "
 
-[Join us at **2 pm** in front of the **Paramount Theatre** in Oakland. Look for a row of ironing boards on both sides of the entrance. No experience is necessary - we will **train** on site at **2 pm**. We should finish by 4 pm at the latest.](https://demaction.us/events/41259300679/)
+"  [Join us at **2 pm** in front of the **Paramount Theatre** in Oakland. Look for a row of ironing boards on both sides of the entrance. No experience is necessary - we will **train** on site at **2 pm**. We should finish by 4 pm at the latest.](https://demaction.us/events/41259300679/)  "
 
 
 
