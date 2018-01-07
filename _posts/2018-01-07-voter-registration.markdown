@@ -3,7 +3,8 @@ title: Voter Registration
 date: 2018-01-07 06:52:00 -08:00
 ---
 
-"**The road to 2018 starts with voter registration**." [*Indivisibole435.org*](https://indivisible435.org/)
+"**The road to 2018 starts with voter registration**."  
+ [*Indivisibole435.org*](https://indivisible435.org/)
 
 Excerpted from [**Democracy Action**](https://demaction.us/?mc_cid=b3dace6678&mc_eid=7ffae608a7) :
 
