@@ -15,5 +15,5 @@ That’s why we must **advocate** to our **school boards**, who represent all-of
 
 If you are a **parent of a child in high school**, contact your **school’s administration** and confirm that they will have a **voter education event** that includes voter **pre-registration**.
 
-Call your local school board (you don’t have to be a parent to do this) and confirm that schools in your district are prioritizing voter education and especially voter pre-registration.  [**Click here to find your Oakland school board**](http://mapgis.oaklandnet.com/ousd/).
+[Call your local school board](http://mapgis.oaklandnet.com/ousd/) (you don’t have to be a parent to do this) and confirm that schools in your district are prioritizing voter education and especially voter pre-registration.  [**Click here to find your Oakland school board**](http://mapgis.oaklandnet.com/ousd/).
 
