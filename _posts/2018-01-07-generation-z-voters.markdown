@@ -13,3 +13,7 @@ That’s why we must **advocate** to our **school boards**, who represent all-of
 
 [**California** :	**16- and 17-year-olds** may **preregister **to vote in any election that occurs on or after their **18th birthday**.	](Cal. Elec. Code §§ 2000(b), 2102(d), 2102a, 2107, 2196 (West); 2009 Cal. Legis. Serv. Ch. 364, § 7 (A.B. 30) (West).)
 
+If you are a **parent of a child in high school**, contact your **school’s administration** and confirm that they will have a **voter education event** that includes voter **pre-registration**.
+
+Call your local school board (you don’t have to be a parent to do this) and confirm that schools in your district are prioritizing voter education and especially voter pre-registration.  [**Click here to find your Oakland school board**](http://mapgis.oaklandnet.com/ousd/).
+
