@@ -15,5 +15,5 @@ Excerpted from [**Women's March Oakland**](https://womensmarchoakland.org/) :
 
 #2:    "  [**March For Our Future Contingent**](http://bayareamarchforourfuture.weebly.com/march-with-us.html)  "
 
-Do you know **youth** interested in **joining the lead contingent** hosted by [March for Our Future](http://bayareamarchforourfuture.weebly.com/)?
-YOUTH CONTINGENT SIGN-UP
+Do you know **youth** interested in **joining the lead contingent** hosted by [**March for Our Future**](http://bayareamarchforourfuture.weebly.com/)?
+[Click here for the YOUTH CONTINGENT SIGN-UP](http://bayareamarchforourfuture.weebly.com/march-with-us.html)
