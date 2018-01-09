@@ -8,7 +8,7 @@ Excerpted from [**Women's March Oakland**](https://womensmarchoakland.org/) :
 
 ***TWO ITEMS OF INTEREST***:
 
-#1:     "  [**Call for Peace Ambassadors**]((https://womensmarchoakland.org/peace-ambassador))  "
+#1:     "  **[Call for Peace Ambassadors](https://womensmarchoakland.org/peace-ambassador)**
 
 "  Are you interested in helping to make this year’s march **welcoming for people of all ages and backgrounds**?
 [**Click here** to sign up to become a **Peace Ambassador**!](https://womensmarchoakland.org/peace-ambassador).  "
