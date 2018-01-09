@@ -13,8 +13,7 @@ Excerpted from [**Women's March Oakland**](https://womensmarchoakland.org/) :
 "  Are you interested in helping to make this year’s march **welcoming for people of all ages and backgrounds**?
 [**Click here** to sign up to become a **Peace Ambassador**!](https://womensmarchoakland.org/peace-ambassador)
 
-[March For Our Future Contingent](http://bayareamarchforourfuture.weebly.com/march-with-us.html)
+#2:    "  [**March For Our Future Contingent**](http://bayareamarchforourfuture.weebly.com/march-with-us.html)  "
 
-Do you know youth interested in joining the lead contingent
-hosted by March for Our Future?
+Do you know **youth** interested in **joining the lead contingent** hosted by [March for Our Future](http://bayareamarchforourfuture.weebly.com/)?
 YOUTH CONTINGENT SIGN-UP
