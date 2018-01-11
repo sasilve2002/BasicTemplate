@@ -29,11 +29,11 @@ It gives the speaker a chance to think of things she/he may not have before.  It
 
 ***Consent***:
 
-Sometimes while listening to what can seem like a problem, you can have ideas to resolve those issues.  It is a good idea to focus on the speaker until he/she has completed her/his thought, then ASK for consent to offer advice or think of solutions.  You can say, “Would you like me to listen and be a sounding board, or would you like my input, my advice?”
+Sometimes while listening to what can seem like a problem, you can have ideas to resolve those issues.  It is a good idea to **focus on the speaker** until he/she has completed her/his thought, then **ASK for consent** to offer advice or think of solutions.  You can say, “Would you like me to listen and be a sounding board, or would you like my input, my advice?”
 
-Body Language:
+***Body Language***:
 
-Body language, like folded arms and crossed legs, sometimes creates a feeling of speculation and mistrust, and does nothing to open the lines of trust and communication between the speaker and listener.  Try facing the speaker, occasionally making eye contact.  You don't have to stare.  Leave your chests, arms and legs open at your sides evenly.  An even body projects an even, open mind.
+Body language, like folded arms and crossed legs, sometimes creates a **feeling of speculation and mistrust**, and does nothing to open the lines of trust and communication between the speaker and listener.  Try facing the speaker, occasionally making eye contact.  You don't have to stare.  Leave your chests, arms and legs open at your sides evenly.  ***An even body projects an even, open mind***.
 
 Things You Can Do to Help Our Unhoused Neighbors
 
