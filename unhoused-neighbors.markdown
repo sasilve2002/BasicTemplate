@@ -3,9 +3,10 @@ title: Unhoused Neighbors
 date: 2018-01-11 11:09:00 -08:00
 ---
 
+Excerpted from [Spirit of Oakland](https://spiritofoakland.com/) 
 Things You Can Do to Help Our Unhoused Neighbors
 
-(Spirit of Oakland) https://spiritofoakland.com/
+(Spirit of Oakland) 
 
 1.	Get to know the unhoused neighbors in your neighborhood.  Share hot coffee, provisions, a smile & human kindness on a regular basis.  Develop friendships & long-term solidarity.  We are rebuilding community!
 
