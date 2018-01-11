@@ -19,7 +19,7 @@ Excerpted from [**Spirit of Oakland**](https://spiritofoakland.com/)
 
 **6.**	Commit yourself to encampment defense and support.  **Organize** your people into groups capable of mobilizing & responding to sweeps, harassment & calls for support & action.  It is **collective action that builds power**.
 
-7.	Direct action gets the goods.  We all need to stop waiting, expecting, begging the powers that be to “solve” the housing & homeless crisis they created.  Take land & build homes.  Be Bold, Beautiful & Unapologetic in your autonomous community-led solutions.  The crisis is your permit. Humanity is the code & license.
+**7.**	**Direct action** gets the goods.  We all need to stop waiting, expecting, begging the powers that be to “solve” the housing & homeless crisis they created.  Take land & build homes.  Be Bold, Beautiful & Unapologetic in your autonomous community-led solutions.  The crisis is your permit. Humanity is the code & license.
 
 8.	Educate yourself.  Lies, myths & stereotypes create the public acceptance of criminalizing the homeless.  This demonization of unsheltered neighbors provides cover for the violence & deprivation. It also excuses the system that created the situation.  Intervene on your neighborhood listservs when they go off on unhoused people!  All the suggestions on this flyer will give you a great education on what's up.  But, for starters, read materials from the National Law Center for Homelessness and Poverty : https://www.nichp.org/   Or follow @The Village in Oakland #feedthepeople on Facebook.
 
