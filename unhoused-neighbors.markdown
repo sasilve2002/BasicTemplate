@@ -7,12 +7,12 @@ Excerpted from [**Spirit of Oakland**](https://spiritofoakland.com/)
  
 **Things You Can Do to Help Our Unhoused Neighbors** 
 
-1.	Get to know the unhoused neighbors in your neighborhood.  Share hot coffee, provisions, a smile & human kindness on a regular basis.  Develop friendships & long-term solidarity.  We are rebuilding community!
+**1.**	Get to know the unhoused neighbors in your neighborhood.  **Share** hot coffee, provisions, a smile & human kindness **on a regular basis**.  Develop friendships & long-term solidarity.  We are **rebuilding community**!
 
-2.	No “poverty porn.”   When you are out there being a good neighbor, don't take voyeuristic pictures of people living on the streets.  No selfies with your “new homeless friend.”  Just be a good neighbor.  No need for Facebook to know.  It's “keeping It real” that actually does good and teaches.
+**2.**	**No “poverty porn.”**   When you are out there being a good neighbor, don't take voyeuristic pictures of people living on the streets.  No selfies with your “new homeless friend.”  Just be a good neighbor.  No need for Facebook to know.  **It's “keeping It real” that actually does good and teaches**.
 
-3.	The homeless crisis is a humanitarian crisis, not a career.   Don't try to make your interactions with the unsheltered your new career, non-profit, start-up or project that needs to get funded.  This is not a professional field.  This is a human crisis.  And, if you do get funding, give the money to the unsheltererd.  Don't make a job out of other people's suffering.
-
+**3.**	The **homeless crisis** is a humanitarian crisis, **not a career**.   Don't try to make your interactions with the unsheltered your new career, non-profit, start-up or project that needs to get funded.  This is not a professional field.  This is a human crisis.  And, if you do get funding, give the money to the unsheltererd.  **Don't make a job out of other people's suffering.
+**
 4.	Do not illegally dump your trash, old furniture, “donations” at encampments.  People call the encampments home.
 
 5.	Solidarity, not charity.  Deprivation is a built-in product of a class system.  Solidarity = bearing hardships together.  Anything given to people on the street is in fact a return of what a system has taken by force and design.
