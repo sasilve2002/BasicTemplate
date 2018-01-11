@@ -1,6 +1,7 @@
 ---
 title: January Meeting
 date: 2017-12-20 09:22:00 -08:00
+published: false
 ---
 
 The [**Alameda County Democratic Party Chair**,  **Robin Torello**](https://www.cadem.org/our-party/our-county-committees), will be at our **next meeting** 👏 to discuss the relationship between the **Democratic Party and the resistance**. 
