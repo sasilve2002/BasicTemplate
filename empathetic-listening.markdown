@@ -13,7 +13,7 @@ Excerpted from [**Spirit of Oakland**](https://spiritofoakland.com/):
 
 ***Receive, Don't Relate***:
 
-When you can relate to a person's story, you can start thinking about similarities/differences and whether you like them or not.  You are no longer listening, but assessing and possibly judging.  Unfortunately, you can miss the opportunity to understand what the person is saying and shy.  So, just listen.
+When you can relate to a person's story, you can start thinking about similarities/differences and whether you like them or not.  You are no longer listening, but assessing and possibly judging.  Unfortunately, you can miss the opportunity to understand what the person is saying and why.  ***So, just listen***.
 
 Appreciate:
 
