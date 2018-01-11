@@ -15,7 +15,7 @@ Excerpted from [**Spirit of Oakland**](https://spiritofoakland.com/):
 
 When you can relate to a person's story, you can start thinking about similarities/differences and whether you like them or not.  You are no longer listening, but assessing and possibly judging.  Unfortunately, you can miss the opportunity to understand what the person is saying and why.  ***So, just listen***.
 
-Appreciate:
+***Appreciate***:
 
 Nodding, slight noises of understanding, “MmHm” lets the speaker know that you are following, are listening, and understand.  It does not have to mean that you understand inherently her/his perspective, or even agree.  It means you are giving consideration to all that he/she says, you respect him/her, and you're thinking about it.
 
