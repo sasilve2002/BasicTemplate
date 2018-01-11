@@ -21,13 +21,13 @@ Nodding, slight noises of understanding, “MmHm” lets the speaker know that y
 
 **Summarize****:
 
-Report what you just heard the speaker say and pinpoint the things that were important to her/him.  “So, it was really lonely after your family moved away.”
+**Report what you just heard** the speaker say and pinpoint the things that were important to her/him.  “So, it was really lonely after your family moved away.”
 
-Ask Questions:
+***Ask Questions***:
 
-It gives the speaker a chance to think of things she/he may not have before.  It gives him/her a chance to fill in gaps of understanding for you and others he/she may present this information to in the future.  It may help her/him heal and it may help you understand a perspective you had not considered before.
+It gives the speaker a chance to think of things she/he may not have before.  It gives him/her a chance to fill in gaps of understanding for you and others he/she may present this information to in the future.  It may help her/him heal and it may help you understand ***a perspective you had not considered before***.
 
-Consent:
+***Consent***:
 
 Sometimes while listening to what can seem like a problem, you can have ideas to resolve those issues.  It is a good idea to focus on the speaker until he/she has completed her/his thought, then ASK for consent to offer advice or think of solutions.  You can say, “Would you like me to listen and be a sounding board, or would you like my input, my advice?”
 
