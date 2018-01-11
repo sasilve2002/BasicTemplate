@@ -17,7 +17,7 @@ When you can relate to a person's story, you can start thinking about similariti
 
 ***Appreciate***:
 
-Nodding, slight noises of understanding, “MmHm” lets the speaker know that you are following, are listening, and understand.  It does not have to mean that you understand inherently her/his perspective, or even agree.  It means you are giving consideration to all that he/she says, you respect him/her, and you're thinking about it.
+Nodding, slight noises of understanding, “MmHm” lets the speaker know that you are following, are listening, and understand.  It does not have to mean that you understand inherently her/his perspective, or even agree.  It means you are giving consideration to all that he/she says, **you respect him/her****, and you're thinking about it.
 
 Summarize:
 
