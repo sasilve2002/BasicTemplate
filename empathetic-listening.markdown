@@ -9,9 +9,9 @@ Excerpted from [**Spirit of Oakland**](https://spiritofoakland.com/):
 
 ***Be Silent & Present***:
 
-Focus on the speaker.  Realize they are sharing their feelings and it is OK to hear and OK to share personal truths – it is healthy to do so even if you do not know what to do with the information.  We are only here to listen, not to solve.
+**Focus on the speaker**.  Realize they are sharing their feelings and it is OK to hear and OK to share personal truths – it is healthy to do so even if you do not know what to do with the information.  ***We are only here to listen, not to solve***.
 
-Receive, Don't Relate:
+***Receive, Don't Relate***:
 
 When you can relate to a person's story, you can start thinking about similarities/differences and whether you like them or not.  You are no longer listening, but assessing and possibly judging.  Unfortunately, you can miss the opportunity to understand what the person is saying and shy.  So, just listen.
 
