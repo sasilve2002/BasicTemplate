@@ -13,7 +13,7 @@ Excerpted from [**Spirit of Oakland**](https://spiritofoakland.com/)
 
 **3.**	The **homeless crisis** is a humanitarian crisis, **not a career**.   Don't try to make your interactions with the unsheltered your new career, non-profit, start-up or project that needs to get funded.  This is not a professional field.  This is a human crisis.  And, if you do get funding, give the money to the unsheltererd.  **Don't make a job out of other people's suffering.
 **
-4.	Do not illegally dump your trash, old furniture, “donations” at encampments.  People call the encampments home.
+**4.**	Do not **illegally dump** your trash, old furniture, “donations” at encampments.  **People call the encampments home.**
 
 5.	Solidarity, not charity.  Deprivation is a built-in product of a class system.  Solidarity = bearing hardships together.  Anything given to people on the street is in fact a return of what a system has taken by force and design.
 
