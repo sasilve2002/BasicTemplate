@@ -15,9 +15,9 @@ Excerpted from [**Spirit of Oakland**](https://spiritofoakland.com/)
 **
 **4.**	Do not **illegally dump** your trash, old furniture, “donations” at encampments.  **People call the encampments home.**
 
-5.	Solidarity, not charity.  Deprivation is a built-in product of a class system.  Solidarity = bearing hardships together.  Anything given to people on the street is in fact a return of what a system has taken by force and design.
+**5.**	**Solidarity, not charity.**  Deprivation is a built-in product of a class system.  Solidarity = bearing hardships together.  Anything given to people on the street is in fact a return of what a system has taken by force and design.
 
-6.	Commit yourself to encampment defense and support.  Organize your people into groups capable of mobilizing & responding to sweeps, harassment & calls for support & action.  It is collective action that builds power.
+**6.**	Commit yourself to encampment defense and support.  **Organize** your people into groups capable of mobilizing & responding to sweeps, harassment & calls for support & action.  It is **collective action that builds power**.
 
 7.	Direct action gets the goods.  We all need to stop waiting, expecting, begging the powers that be to “solve” the housing & homeless crisis they created.  Take land & build homes.  Be Bold, Beautiful & Unapologetic in your autonomous community-led solutions.  The crisis is your permit. Humanity is the code & license.
 
