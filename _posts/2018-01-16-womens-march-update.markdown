@@ -51,7 +51,7 @@ We have 30% of our costs left to raise. We’re almost there!
 Can you give $20.18 today?
 [DONATE](https://www.flipcause.com/secure/cause_pdetails/MjUxMjI=)
 Will you join us on January 20, 2018?
-COUNT ME IN
+[COUNT ME IN](https://www.eventbrite.com/e/womens-march-oakland-2018-tickets-39573397096)
 
 THE MARCH
 Join us TOMORROW, JANUARY 16, AT 6:30 PM as we launch the “Together We Rise” national book tour at Laurel Book Store. We’ll discuss our goals for 2018, read from the book, and network before the anniversary march. We will raffle a signed copy of the book at the event. We’ll also be selling WMO T-shirts and totes!
