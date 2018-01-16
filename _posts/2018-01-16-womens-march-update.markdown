@@ -46,10 +46,10 @@ March for Our Future Contingent
 
 Do you know youth interested in joining the lead contingent
 hosted by March for Our Future?
-YOUTH CONTINGENT SIGN-UP
+[YOUTH CONTINGENT SIGN-UP](http://bayareamarchforourfuture.weebly.com/march-with-us.html)
 We have 30% of our costs left to raise. We’re almost there!
 Can you give $20.18 today?
-DONATE
+[DONATE](https://www.flipcause.com/secure/cause_pdetails/MjUxMjI=)
 Will you join us on January 20, 2018?
 COUNT ME IN
 
