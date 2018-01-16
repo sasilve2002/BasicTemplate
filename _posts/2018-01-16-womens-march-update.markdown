@@ -6,11 +6,11 @@ date: 2018-01-16 05:59:00 -08:00
 Excerpted from the [**Women's March Oakland**](https://womensmarchoakland.org/) :
  
  
-**Women's March Oakland News
+**Women's March Oakland News**
 
-March Monday #6
+**March Monday #6**
 
-5 days to go!**
+**5 days to go!**
 
 
 **Schedule** for Saturday, January 20
