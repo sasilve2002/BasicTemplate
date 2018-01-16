@@ -24,7 +24,7 @@ We’ll get fired up with amazing speakers and performers
 We’ll sing, chant and join women and their allies
 from across the East Bay and beyond.
 
-12 PM: Take action
+**12 PM:** Take action
 We’ll learn about organizations doing mighty work
 and shop at local and women-owned businesses.
 
