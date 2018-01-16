@@ -15,8 +15,8 @@ Excerpted from the [**Women's March Oakland**](https://womensmarchoakland.org/) 
 
 **Schedule** for Saturday, January 20
 
-**10 AM**: Rally at [**Lake Merritt Amphitheater**](https://350bayarea.org/venue/lake-merritt-amphitheater) :
-***Between 12th Street and 1st Ave., Lake Merritt Blvd, Oakland, CA 94612***  
+**10 AM**: Rally at [Lake Merritt Amphitheater](https://www.google.com/maps/place/Lake+Merritt+Amphitheater/@37.7990182,-122.2628975,17z/data=!3m1!4b1!4m5!3m4!1s0x808f873433e19613:0x42896152be34d0d4!8m2!3d37.7990182!4d-122.2607088) :
+  
 We’ll get fired up with amazing speakers and performers
 (full lineup to be announced soon).
 
