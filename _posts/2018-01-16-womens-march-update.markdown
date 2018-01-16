@@ -41,8 +41,8 @@ Check it out to learn about our generous sponsors, contingents and more!
 
 Are you interested in helping to make this year’s march
 welcoming for people of all ages and backgrounds?
-[BECOME A PEACE AMBASSADOR](https://www.eventbrite.com/e/wmo-peace-ambassador-training-tickets-41689734117)
-March for Our Future Contingent
+[**BECOME A PEACE AMBASSADOR**](https://www.eventbrite.com/e/wmo-peace-ambassador-training-tickets-41689734117)
+[**March for Our Future**](http://bayareamarchforourfuture.weebly.com/) Contingent
 
 Do you know youth interested in joining the lead contingent
 hosted by March for Our Future?
