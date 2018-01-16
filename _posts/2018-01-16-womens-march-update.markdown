@@ -20,7 +20,7 @@ Excerpted from the [**Women's March Oakland**](https://womensmarchoakland.org/) 
 We’ll get fired up with amazing speakers and performers
 (full lineup to be announced soon).
 
-11:30 AM: March to Frank Ogawa Plaza
+**11:30 AM**: March to [Frank Ogawa Plaza](https://en.wikipedia.org/wiki/Frank_H._Ogawa_Plaza)
 We’ll sing, chant and join women and their allies
 from across the East Bay and beyond.
 
