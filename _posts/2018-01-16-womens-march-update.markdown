@@ -12,7 +12,8 @@ March Monday #6
 
 **Schedule** for Saturday, January 20
 
-**10 AM**: Rally at [Lake Merritt Amphitheater](https://350bayarea.org/venue/lake-merritt-amphitheater)
+**10 AM**: Rally at [Lake Merritt Amphitheater](https://350bayarea.org/venue/lake-merritt-amphitheater) :
+***Between 12th Street and 1st Ave., Lake Merritt Blvd, Oakland, CA 94612***
 We’ll get fired up with amazing speakers and performers
 (full lineup to be announced soon).
 
