@@ -37,11 +37,11 @@ We’ll be updating our [**website**](https://womensmarchoakland.org/) daily unt
 Check it out to learn about our generous sponsors, contingents and more!
 
 
-Call for Peace Ambassadors
+**[Call for Peace Ambassadors](https://www.eventbrite.com/e/wmo-peace-ambassador-training-tickets-41689734117)**
 
 Are you interested in helping to make this year’s march
 welcoming for people of all ages and backgrounds?
-BECOME A PEACE AMBASSADOR
+[BECOME A PEACE AMBASSADOR](https://www.eventbrite.com/e/wmo-peace-ambassador-training-tickets-41689734117)
 March for Our Future Contingent
 
 Do you know youth interested in joining the lead contingent
