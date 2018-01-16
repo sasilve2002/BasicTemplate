@@ -63,6 +63,6 @@ THE MEGAPHONE
 [ARTogether](https://www.instagram.com/projectartogether/) provides the refugee community with free resources and instruction in the creative arts, and stands alone as the only creative arts program in the San Francisco Bay Area that specifically serves refugees. Activities are led by talented passionate artists and art educators, most of whom are bilingual and belong to underrepresented groups, including women, people of color, and the queer community.
 
 [ARTogether](https://www.instagram.com/projectartogether/) believes that creative art has a special role to play for the refugee community, inviting conversation, laughter, storytelling and a sense of belonging. ARTogether exhibits selections of participants’ artwork to the public as part of a parallel mission to increase public awareness of the refugee community.
-FIND OUT MORE
+[FIND OUT MORE](https://www.projectartogether.org/mission/)
 
 
