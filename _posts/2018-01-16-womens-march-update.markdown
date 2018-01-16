@@ -5,7 +5,7 @@ date: 2018-01-16 05:59:00 -08:00
 
 Excerpted from the [**Women's March Oakland**](https://womensmarchoakland.org/) :
  
- 
+ [](http://bayareamarchforourfuture.weebly.com/)
 **Women's March Oakland News**
 
 **March Monday #6**
