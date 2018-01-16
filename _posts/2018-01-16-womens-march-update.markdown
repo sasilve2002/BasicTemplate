@@ -59,8 +59,8 @@ Join us TOMORROW, JANUARY 16, AT 6:30 PM as we launch the “Together We Rise”
 In celebration of the 1-year anniversary of the Women’s March, the national organizers have created "Together We Rise," a gorgeously designed full-color book offering an unprecedented, front-row seat to one of the most galvanizing movements in American history.
 [REGISTER](https://www.eventbrite.com/e/together-we-rise-oakland-book-release-party-tickets-41594376901) 
 
-THE MEGAPHONE
-[ARTogether](https://www.instagram.com/projectartogether/) provides the refugee community with free resources and instruction in the creative arts, and stands alone as the only creative arts program in the San Francisco Bay Area that specifically serves refugees. Activities are led by talented passionate artists and art educators, most of whom are bilingual and belong to underrepresented groups, including women, people of color, and the queer community.
+**THE MEGAPHONE**
+[**ARTogether**](https://www.instagram.com/projectartogether/) provides the refugee community with free resources and instruction in the creative arts, and stands alone as the only creative arts program in the San Francisco Bay Area that specifically serves refugees. Activities are led by talented passionate artists and art educators, most of whom are bilingual and belong to underrepresented groups, including women, people of color, and the queer community.
 
 [**ARTogether**](https://www.instagram.com/projectartogether/) believes that creative art has a special role to play for the refugee community, inviting conversation, laughter, storytelling and a sense of belonging. [**ARTogether**](https://www.instagram.com/projectartogether/) exhibits selections of participants’ artwork to the public as part of a parallel mission to increase public awareness of the refugee community.
 [**FIND OUT MORE**](https://www.projectartogether.org/mission/)
