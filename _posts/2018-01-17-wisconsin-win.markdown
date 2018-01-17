@@ -3,7 +3,9 @@ title: Wisconsin Win
 date: 2018-01-17 06:36:00 -08:00
 ---
 
-Excerpted from [Postcards From Kate](https://www.postcardsfromkate.org/)
+***Here's a feel-good action, a way to show support for a red-to-blue flip in Wisconsin:***
+
+Excerpted from [**Postcards From Kate**](https://www.postcardsfromkate.org/)
 
 [*FYI - click here for free printleab postcards from Kate's site*](https://www.postcardsfromkate.org/get-supplies/) . 
  
