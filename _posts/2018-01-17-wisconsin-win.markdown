@@ -16,6 +16,8 @@ Woohoo! Today we're thanking the campaign staff of **[Patty for Senate for flipp
 
 Congrats Senator elect Patty Schachtner!
 
-**PATTY FOR SENATE
-P.O.BOX 1601
-HUDSON, WI 54016**  
+**PATTY FOR SENATE**
+
+**P.O.BOX 1601**
+
+**HUDSON, WI 54016 ** 
