@@ -10,7 +10,7 @@ Excerpted from [**Postcards From Kate**](https://www.postcardsfromkate.org/)
 [*FYI - **click here** for **free printable postcards** from Kate's site*](https://www.postcardsfromkate.org/get-supplies/) . 
  
 "  **Daily Thank You** 1.17.2018
-Woohoo! Today we're thanking the campaign staff of **Patty for Senate for flipping #SD10**, a **WI state Senate seat** that has been held by Republicans for 16 years!  "
+Woohoo! Today we're thanking the campaign staff of **[Patty for Senate for flipping #SD10](https://www.pattyforsenate.com/)**, a **WI state Senate seat** that has been held by Republicans for 16 years!  "
 
 "  “People sent a message tonight we don’t want to be negative anymore,” she said. “Change it up. I ran a positive campaign...My message has always been be kind, be considerate and we need to help people when they’re down.” [**Read more here**](http://www.nydailynews.com/news/national/democrats-flip-wisconsin-state-senate-seat-stunning-upset-article-1.3761387).  "
 
