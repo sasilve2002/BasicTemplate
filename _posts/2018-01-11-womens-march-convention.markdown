@@ -1,6 +1,7 @@
 ---
 title: Power to the Polls
 date: 2018-01-11 05:54:00 -08:00
+published: false
 ---
 
 [**National Voter Registration Tour**](http://www.powertothepolls.com/)
