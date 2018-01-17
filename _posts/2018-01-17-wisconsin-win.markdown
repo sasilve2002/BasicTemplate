@@ -7,7 +7,7 @@ date: 2018-01-17 06:36:00 -08:00
 
 Excerpted from [**Postcards From Kate**](https://www.postcardsfromkate.org/)
 
-[*FYI - click here for free printleab postcards from Kate's site*](https://www.postcardsfromkate.org/get-supplies/) . 
+[*FYI - **click here** for **free printable postcards** from Kate's site*](https://www.postcardsfromkate.org/get-supplies/) . 
  
 "  **Daily Thank You** 1.17.2018
 Woohoo! Today we're thanking the campaign staff of **Patty for Senate for flipping #SD10**, a **WI state Senate seat** that has been held by Republicans for 16 years!  "
