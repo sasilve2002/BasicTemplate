@@ -20,4 +20,4 @@ Congrats Senator elect Patty Schachtner!
 
 **P.O.BOX 1601**
 
-**HUDSON, WI 54016 ** 
+**HUDSON, WI 54016** 
