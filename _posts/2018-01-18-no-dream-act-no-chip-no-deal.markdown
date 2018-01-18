@@ -1,0 +1,17 @@
+---
+title: No DREAM Act? No CHIP? No deal.
+date: 2018-01-18 07:57:00 -08:00
+---
+
+Excerpted from The [**Daily Kos**](https://www.dailykos.com/) :
+
+"  Republicans need at least nine Democratic votes to pass a funding bill through the U.S. Senate.  
+
+So let's make this real simple: No DREAM Act? No CHIP? No deal. Your Democratic U.S. senator(s) must hear this.
+
+Call Senator Dianne Feinstein at (415) 393-0707 and Senator Kamala D. Harris at (202) 224-3553. Demand they oppose any spending bill that doesn't include the DREAM Act and long-term funding for children's health care.
+
+**Sample Script**: 
+
+***Hi, my name is __________ from zip code ___________. I am calling to urge [Senator Feinstein](https://www.feinstein.senate.gov/public/) / [Senator Harris](https://www.harris.senate.gov/) to **oppose** any government **funding bill** that does **not include** the **Dream Act AND long-term funding for the Children’s Health Insurance Program**. Don't leave children and youth in our state behind. NO DREAM ACT? NO CHIP? NO DEAL. Thank you for your time.***
+Once you've placed the call, click here to tell us how it went. We are keeping a running tally of calls. 
