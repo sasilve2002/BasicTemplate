@@ -5,7 +5,7 @@ date: 2018-01-18 07:57:00 -08:00
 
 Excerpted from The [**Daily Kos**](https://www.dailykos.com/) :
 
-"  Republicans need at least nine Democratic votes to pass a funding bill through the U.S. Senate.  
+"  Republicans need at least nine Democratic votes to pass a [funding bill](https://www.washingtonpost.com/news/post-politics/wp/2014/12/09/whats-in-the-spending-bill-we-skim-it-so-you-dont-have-to/?utm_term=.9009f9e11e37) through the U.S. Senate.  
 
 So let's make this real simple: **No DREAM Act? No CHIP? No deal**. Your Democratic U.S. senator(s) must hear this.
 
