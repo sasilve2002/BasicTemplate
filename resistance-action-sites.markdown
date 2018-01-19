@@ -20,8 +20,6 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
 
-[**https://dailyaction.org/book-club/** : book club with dialogues with authors](https://dailyaction.org/book-club/)
-
 ## ***More Groups***:
 
 **THE GROUPS REJUVENATING THE DEMOCRATS**
