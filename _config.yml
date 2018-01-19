@@ -6,6 +6,9 @@ collections:
     title: Contacts
     output: true
     Contact: sasilve2002@gmail.com
+  poem:
+    title: Poem
+    output: true
   posts:
     title: Posts
     output: true
