@@ -1,0 +1,26 @@
+---
+title: Our Poem
+date: 2018-01-19 08:37:00 -08:00
+---
+
+**Nothing Rhymes with Orange**
+
+It's *strange* that no work rhymes with *orange*.
+That lack of shyme seems apt to me.
+I might suggest the word *revenge.*
+The orange one sows disharmony.
+
+The *unhinged* despot wields his power,
+his chief concern to please his base.
+His lies and upsets mount each hour;
+his mantra is "Repeal and Replace."
+
+The orange one can be counted on
+to *avenge* his real or imagined slights.
+His staff and partisans learned to fawn.
+Their bully-in-chief delights in fights.
+
+The orange man draws the radical *fringe*
+that seeks to destroy our democracy.
+Mere thought of him can make me *cringe!*
+
