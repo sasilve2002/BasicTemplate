@@ -1,6 +1,7 @@
 ---
 title: Assembly Member Rob Bonta
 date: 2017-11-20 06:21:00 -08:00
+published: false
 ---
 
 **District 18**
