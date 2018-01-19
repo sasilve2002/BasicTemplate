@@ -32,8 +32,8 @@ on food or drink to blur reality.
 
 Instead, I'll pledge to join the fight
 with **Indivisibles** defending our nation.
-History will one day prove us righgt,
-a time in our land for jublication!
+History will one day prove us right,
+a time in our land for jubilation!
 
 **By Anna Dabney**   **December 23, 2017**
 
