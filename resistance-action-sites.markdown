@@ -40,7 +40,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**THE MOVEMENT FOR BLACK LIVES**](https://policy.m4bl.org/), which began as a protest movement against police violence in 2013, is still in the streets, but it has begun focusing on get-out-the-vote drives and local electoral campaigns, such as the race for Philadelphia district attorney.
 
-[**LABOR FOR OUR REVOLUTION**](https://actionnetwork.org/groups/labor-for-bernie) grew out of Labor for Bernie, a coalition of union members who backed Sanders in 2016. They recently launched a campaign with organizations such as JUSTICE DEMOCRATS and NATIONAL NURSES UNITED to pressure Democrats in Congress to sign on to a progressive People’s Platform.
+[LABOR FOR OUR REVOLUTION](https://www.facebook.com/pg/LaborforOurRevolution/about/?ref=page_internal) grew out of Labor for Bernie, a coalition of union members who backed Sanders in 2016. They recently launched a campaign with organizations such as JUSTICE DEMOCRATS and NATIONAL NURSES UNITED to pressure Democrats in Congress to sign on to a progressive People’s Platform.
 
 [**DEMOCRATIC SOCIALISTS OF AMERICA**](http://www.dsausa.org/), founded in 1982, has more than doubled its membership since the election, becoming the nation’s largest socialist organization, with over 120 chapters. The group has developed a plan to help progressives win local elections and to build support for national political change.
 
