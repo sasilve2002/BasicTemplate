@@ -1,7 +1,7 @@
 ---
 title: |-
   Another Indivisible Group:
-  Redwood Heights Indivisible Collective Monthly Meeting
+  Redwood Heights Indivisible Collective
 date: 2017-12-02 11:02:00 -08:00
 ---
 
