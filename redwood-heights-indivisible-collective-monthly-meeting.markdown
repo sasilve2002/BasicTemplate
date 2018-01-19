@@ -5,7 +5,7 @@ title: |-
 date: 2017-12-02 11:02:00 -08:00
 ---
 
-In addition to Nothing Rhymes with Orange resistance group, the Redwood Heights Indivisible Collective meets monthly:
+In addition to **Nothing Rhymes with Orange** resistance group, the **Redwood Heights Indivisible Collective** **(RHIC)** meets monthly:
 
 From the RHIC:
 
