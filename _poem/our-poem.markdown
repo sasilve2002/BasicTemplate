@@ -6,7 +6,7 @@ date: 2018-01-19 08:37:00 -08:00
 **Nothing Rhymes with Orange**
 
 It's *strange* that no work rhymes with *orange*.
-That lack of shyme seems apt to me.
+That lack of rhyme seems apt to me.
 I might suggest the word *revenge.*
 The orange one sows disharmony.
 
