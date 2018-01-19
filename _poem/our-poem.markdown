@@ -23,4 +23,17 @@ Their bully-in-chief delights in fights.
 The orange man draws the radical *fringe*
 that seeks to destroy our democracy.
 Mere thought of him can make me *cringe!*
+I recoil at his hypocrisy.
+
+How many laws can he *infringe*
+and still incur no penalty?
+His actions make me want to *binge*
+on food or drink to blur reality.
+
+Instead, I'll pledge to join the fight
+with **Indivisibles** defending our nation.
+History will one day prove us righgt,
+a time in our land for jublication!
+
+**By Anna Dabney**   **December 23, 2017**
 
