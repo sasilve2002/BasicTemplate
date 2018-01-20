@@ -14,6 +14,7 @@ I might suggest the word *revenge.*
 The orange one sows disharmony.
 
 
+
 The *unhinged* despot wields his power,
 
 his chief concern to please his base.
@@ -21,6 +22,7 @@ his chief concern to please his base.
 His lies and upsets mount each hour;
 
 his mantra is "Repeal and Replace."
+
 
 
 The orange one can be counted on
@@ -32,6 +34,7 @@ His staff and partisans learned to fawn.
 Their bully-in-chief delights in fights.
 
 
+
 The orange man draws the radical *fringe*
 
 that seeks to destroy our democracy.
@@ -39,6 +42,7 @@ that seeks to destroy our democracy.
 Mere thought of him can make me *cringe!*
 
 I recoil at his hypocrisy.
+
 
 
 How many laws can he *infringe*
@@ -50,6 +54,7 @@ His actions make me want to *binge*
 on food or drink to blur reality.
 
 
+
 Instead, I'll pledge to join the fight
 
 with **Indivisibles** defending our nation.
@@ -57,6 +62,7 @@ with **Indivisibles** defending our nation.
 History will one day prove us right,
 
 a time in our land for jubilation!
+
 
 
 **By Anna Dabney**   **December 23, 2017**
