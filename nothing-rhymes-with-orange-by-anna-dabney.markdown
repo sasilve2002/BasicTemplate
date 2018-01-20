@@ -8,11 +8,16 @@ date: 2018-01-20 06:21:00 -08:00
 **Nothing Rhymes with Orange**
 
 It's *strange* that no work rhymes with *orange*.
+
 That lack of rhyme seems apt to me.
+
 I might suggest the word *revenge.*
+
 The orange one sows disharmony.
 
+
 The *unhinged* despot wields his power,
+
 his chief concern to please his base.
 His lies and upsets mount each hour;
 his mantra is "Repeal and Replace."
