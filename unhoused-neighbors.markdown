@@ -1,5 +1,5 @@
 ---
-title: Unhoused Neighbors
+title: Unhoused Neighbors & Empathetic Listening
 date: 2018-01-11 11:09:00 -08:00
 ---
 
