@@ -1,5 +1,5 @@
 ---
-title: Resistance Action Sites
+title: "Resistance \nAction Sites"
 date: 2017-07-19 07:11:00 -07:00
 ---
 
