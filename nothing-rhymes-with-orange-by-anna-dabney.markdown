@@ -6,7 +6,7 @@ Field name:
 
 **"Nothing Rhymes with Orange"**
 
-It's *strange* that no work rhymes with *orange*.
+It's *strange* that no word rhymes with *orange*.
 
 That lack of rhyme seems apt to me.
 
