@@ -1,5 +1,5 @@
 ---
-title: What's Congress Voting On?
+title: "What's Congress \nVoting On?"
 date: 2017-07-10 17:09:00 -07:00
 ---
 
