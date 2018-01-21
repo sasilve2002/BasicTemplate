@@ -12,3 +12,13 @@ phone-numbers:
 website: http://lee.house.gov/
 ---
 
+**Facebook**:
+https://www.facebook.com/RepBarbaraLee/
+
+[**Website**](http://lee.house.gov/)
+
+**Oakland Office**
+(510) 763-0370
+
+**DC Office**
+(202) 225-2661
