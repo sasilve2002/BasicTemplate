@@ -1,6 +1,7 @@
 ---
 title: "\"Nothing Rhymes \nwith Orange\"\na poem\nBy Anna Dabney"
 date: 2018-01-20 06:21:00 -08:00
+Field name: 
 ---
 
 **Nothing Rhymes with Orange**
@@ -15,7 +16,6 @@ His chief concern to please his base.
 His lies and upsets mount each hour;
 His mantra is "Repeal and Replace."
 
-```````````````````````````````````````
 The orange one can be counted on
 To *avenge* his real or imagined slights.
 His staff and partisans learned to fawn.
