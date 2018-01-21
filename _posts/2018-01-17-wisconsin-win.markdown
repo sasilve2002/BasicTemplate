@@ -1,7 +1,6 @@
 ---
 title: Wisconsin Win
 date: 2018-01-17 06:36:00 -08:00
-published: false
 ---
 
 ***Here's a feel-good action, a way to show support for a red-to-blue flip in Wisconsin:***
