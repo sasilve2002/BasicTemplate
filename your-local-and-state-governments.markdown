@@ -1,5 +1,5 @@
 ---
-title: "Your \nLocal \n& State \nGovernments"
+title: "Your \nLocal & \nState \nGovernments"
 date: 2017-08-16 08:14:00 -07:00
 ---
 
