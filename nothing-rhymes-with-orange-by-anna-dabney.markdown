@@ -39,7 +39,9 @@ Their bully-in-chief delights in fights.
 The orange man draws the radical *fringe*
 
 That seeks to destroy our democracy.
+
 Mere thought of him can make me *cringe!*
+
 I recoil at his hypocrisy.
 
          <><><><><><>
