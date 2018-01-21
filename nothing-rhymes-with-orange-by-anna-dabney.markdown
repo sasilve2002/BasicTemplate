@@ -1,9 +1,5 @@
 ---
-title: |-
-  Nothing Rhymes with Orange
-  *************************
-  a poem
-  By Anna Dabney
+title: "\"Nothing Rhymes \nwith Orange\"\na poem\nBy Anna Dabney"
 date: 2018-01-20 06:21:00 -08:00
 ---
 
