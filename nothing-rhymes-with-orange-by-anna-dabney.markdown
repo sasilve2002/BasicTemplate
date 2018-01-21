@@ -6,9 +6,11 @@ Field name:
 
 **Nothing Rhymes with Orange**
 
-1. It's *strange* that no work rhymes with *orange*.
+It's *strange* that no work rhymes with *orange*.
+
 That lack of rhyme seems apt to me.
-I might suggest the word *revenge.*
+
+I might suggest the word *revenge*.
 The orange one sows disharmony.
 
 The *unhinged* despot wields his power,
