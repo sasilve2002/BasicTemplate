@@ -5,7 +5,7 @@ date: 2018-01-21 17:29:00 -08:00
 
 Excerpted from [**MoveOn.org Trump Shut Down**](https://act.moveon.org/event/trumpshutdown/search/) : 
 
-**#TrumpShutDown RESISTANCE !**  **[Click here to Sign up to Attend]((https://act.moveon.org/event/trumpshutdown/19225/signup/?akid=&zip=&source=))** --- ***(Scroll down the page)***
+**#TrumpShutDown RESISTANCE !**  **[Click here to Sign up to Attend]((https://act.moveon.org/event/trumpshutdown/19225/signup/?akid=&zip=&source=))** --- ***(Scroll down the sign-up page)***
 
 **Tuesday**, 
 
