@@ -11,7 +11,7 @@ Excerpted from [**MoveOn.org Trump Shut Down**](https://act.moveon.org/event/tru
 
 **January 23, 2018**
  
-**12:00 noo**n
+**12:00 noon**
 
 **Hosted by Lawrence A.**
 
