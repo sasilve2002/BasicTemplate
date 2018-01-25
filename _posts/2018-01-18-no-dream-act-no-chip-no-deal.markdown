@@ -1,6 +1,7 @@
 ---
 title: No DREAM Act? No CHIP? No deal.
 date: 2018-01-18 07:57:00 -08:00
+published: false
 ---
 
 Excerpted from The [**Daily Kos**](https://www.dailykos.com/) :
