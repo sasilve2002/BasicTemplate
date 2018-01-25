@@ -16,7 +16,7 @@ The *unhinged* despot wields his power,
 his chief concern to please his base.
 His lies and upsets mount each hour;
 his mantra is "Repeal and Replace."
-
+***
 The orange one can be counted on
 to *avenge* his real or imagined slights.
 His staff and partisans learned to fawn.
