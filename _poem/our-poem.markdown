@@ -11,7 +11,7 @@ It's *strange* that no work rhymes with *orange*.
 That lack of rhyme seems apt to me.
 I might suggest the word *revenge.*
 The orange one sows disharmony.
-
+***
 The *unhinged* despot wields his power,
 his chief concern to please his base.
 His lies and upsets mount each hour;
