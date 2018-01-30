@@ -15,11 +15,11 @@ In addition, we will be writing postcards, care of [**TonyTheDemocrat**](https:/
 
 If you can **bring a laptop**, we can discover how to **text folks , from the comfort of your favorite arm chair**, to remind them to vote.
 
-**Next Meeting:
+**Next Meeting**:
 
-Tuesday,
-Feb. 6, 2018
-7:30-9:00 pm**
+**Tuesday**,
+**Feb. 6, 2018**
+**7:30-9:00 pm**
 
 Please email me for the address:
 sasilve2002@gmail.com
