@@ -19,6 +19,7 @@ If you can **bring a laptop**, we can discover how to **text folks , from the co
 
 **Tuesday**,
 **Feb. 6, 2018**
+
 **7:30-9:00 pm**
 
 ** BRING A FRIEND **
