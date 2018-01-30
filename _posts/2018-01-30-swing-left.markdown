@@ -13,8 +13,8 @@ We had a **record turnout** for the fourth Saturday canvassing in **Modesto** on
  
 [**CA-21**](https://ballotpedia.org/California%27s_21st_Congressional_District_election,_2018): Events are scheduled for the weekends of **February 10/11** and **February 17/18**. These weekend trips include two canvassing rounds on **Saturday at 10 am** and **1:00 pm**, and one at **11 am Sunday morning**. You can attend all three or just one canvassing round each weekend.
 
-    - Kerman on February 10/11 (CA-21) - [REGISTER](https://actionnetwork.org/events/swing-left-canvass-3)
-    - Lemoore on February 17/18 (CA-21) - REGISTER
+    - **Kerman** on **February 10/11** ([**CA-21**](https://ballotpedia.org/California%27s_21st_Congressional_District_election,_2018)) - [**REGISTER**](https://actionnetwork.org/events/swing-left-canvass-3)
+    - Lemoore on February 17/18 ([**CA-21**](https://ballotpedia.org/California%27s_21st_Congressional_District_election,_2018)) - REGISTER
 
 First time volunteers are welcome! Training is provided on site each time we go out to canvas and new volunteers are paired with an experienced partner. While many may be nervous about canvassing, originally reluctant volunteers regularly report how easy and enjoyable the experience turned out to be. Engaging with voters face-to-face is one of the most effective methods for winning political campaigns. Canvassing involves knocking on doors of mostly registered Democrats, and your primary goal is providing information rather than changing minds.
 Swing Left "Blue Wave" National Tour Coming to SF, March 3, 2018 
