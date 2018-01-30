@@ -5,23 +5,23 @@ date: 2018-01-30 06:14:00 -08:00
 
 Excerpted from [**Swing Left**](https://swingleft.org/) :
  
-**Upcoming Canvas Opportunities**
+"  **Upcoming Canvas Opportunities**  "
 
-We had a **record turnout** for the fourth Saturday canvassing in **Modesto** on January 27 with over **80 volunteers**. Join the building momentum by signing up for any of the **following scheduled trips to the districts.** 
+"  We had a **record turnout** for the fourth Saturday canvassing in **Modesto** on January 27 with over **80 volunteers**. Join the building momentum by signing up for any of the **following scheduled trips to the districts.**  " 
 
-[**CA-10**:](https://swingleft.org/district/CA-10) The next group trip from the East Bay to Modesto is scheduled for **February 24** and we will be doing these events on the **fourth Saturday of every month through May**. The events run from **10 am - 2 pm** and a meet-up location in **Oakland** is available for those wishing to **carpool**. [**REGISTER here**](https://docs.google.com/forms/d/e/1FAIpQLSfipkKDw9ASXHeNaQz470rs94pTOoxIUDDdSg5kiACy20nJnA/viewform) for the **Modesto** events, or for other opportunities in [**CA-10**](https://swingleft.org/static/resources/primers/district-primer-CA-10.pdf), check out the Swing Left calendar for [**CA-10**](https://swingleft.org/static/resources/primers/district-primer-CA-10.pdf).
+"  [**CA-10**:](https://swingleft.org/district/CA-10) The next group trip from the East Bay to Modesto is scheduled for **February 24** and we will be doing these events on the **fourth Saturday of every month through May**. The events run from **10 am - 2 pm** and a meet-up location in **Oakland** is available for those wishing to **carpool**. [**REGISTER here**](https://docs.google.com/forms/d/e/1FAIpQLSfipkKDw9ASXHeNaQz470rs94pTOoxIUDDdSg5kiACy20nJnA/viewform) for the **Modesto** events, or for other opportunities in [**CA-10**](https://swingleft.org/static/resources/primers/district-primer-CA-10.pdf), check out the Swing Left calendar for [**CA-10**](https://swingleft.org/static/resources/primers/district-primer-CA-10.pdf).  "
  
-[**CA-21**](https://ballotpedia.org/California%27s_21st_Congressional_District_election,_2018): Events are scheduled for the weekends of **February 10/11** and **February 17/18**. These weekend trips include two canvassing rounds on **Saturday at 10 am** and **1:00 pm**, and one at **11 am Sunday morning**. You can attend all three or just one canvassing round each weekend.
+"  [**CA-21**](https://ballotpedia.org/California%27s_21st_Congressional_District_election,_2018): Events are scheduled for the weekends of **February 10/11** and **February 17/18**. These weekend trips include two canvassing rounds on **Saturday at 10 am** and **1:00 pm**, and one at **11 am Sunday morning**. You can attend all three or just one canvassing round each weekend.  "
 
-- [**Kerman** on **February 10/11** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swing-left-canvass-3)
-- [**Lemoore** on **February 17/18** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swingleft-canvass)
+"  - [**Kerman** on **February 10/11** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swing-left-canvass-3)
+- [**Lemoore** on **February 17/18** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swingleft-canvass)  "
 
-**First time volunteers are welcome**! Training is provided on site each time we go out to canvas and **new volunteers are paired with an experienced partner**. While many may be nervous about canvassing, originally reluctant volunteers regularly report how **easy and enjoyable** the experience turned out to be. Engaging with voters **face-to-face** is one of the most **effective** methods for winning political campaigns. Canvassing involves knocking on doors of mostly **registered Democrats**, and your primary goal is **providing information** rather than changing minds.
+"  **First time volunteers are welcome**! Training is provided on site each time we go out to canvas and **new volunteers are paired with an experienced partner**. While many may be nervous about canvassing, originally reluctant volunteers regularly report how **easy and enjoyable** the experience turned out to be. Engaging with voters **face-to-face** is one of the most **effective** methods for winning political campaigns. Canvassing involves knocking on doors of mostly **registered Democrats**, and your primary goal is **providing information** rather than changing minds.  "
 
-[Swing Left "**Blue Wave**" National Tour](https://www.evensi.com/swing-left-blue-wave-tour-rino-district-denver/243443207) Coming to **SF, March 3, 2018** 
-Swing Left national organizers will be traveling around the country to **meet, strategize, and have fun** with local activists who are passionate about flipping the House and they will be in **San Francisco on March 3**
+"  [Swing Left "**Blue Wave**" National Tour](https://www.evensi.com/swing-left-blue-wave-tour-rino-district-denver/243443207) Coming to **SF, March 3, 2018** 
+Swing Left national organizers will be traveling around the country to **meet, strategize, and have fun** with local activists who are passionate about flipping the House and they will be in **San Francisco on March 3**  "
 
-Join veteran organizers working on Swing Left's national team, including former staffers for the Obama and Clinton campaigns, to learn more about the Swing Left strategy, meet other activists in your area, and connect with all the things you can do to get involved or take your involvement to the next level. You'll leave inspired, motivated, and with a clear plan of action-knowing exactly what you can do next to have a big, tangible impact on ushering a Democratic majority into the House in November.
+"  **Join** veteran organizers working on **Swing Left's national team**, including former staffers for the Obama and Clinton campaigns, to learn more about the Swing Left **strategy**, meet other activists in your area, and **connect** with all the things you can do to get involved or take your involvement to the next level. You'll leave **inspired**, **motivated**, and with a clear **plan of action**-knowing exactly what you can do next to have a big, tangible impact on ushering a Democratic majority into the House in November.
 
 [**RSVP now to attend**](https://actionnetwork.org/events/the-swing-left-blue-wave-national-tour-2018-comes-to-san-francisco-march-3-2018?refcode=em_20180122_tour&link_id=1&can_id=1dc5066a5d1a5d0c0cd27729589142b4&source=email-announcing-the-swing-left-blue-wave-tour-coming-soon-to-a-city-near-you&email_referrer=email_289563&email_subject=announcing-the-swing-left-blue-wave-tour-coming-soon-to-a-city-near-you)
 
