@@ -18,6 +18,7 @@ If you can **bring a laptop**, we can discover how to **text folks , from the co
 **Next Meeting**:
 
 **Tuesday**,
+
 **Feb. 6, 2018**
 
 **7:30-9:00 pm**
