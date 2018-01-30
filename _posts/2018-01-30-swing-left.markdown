@@ -18,13 +18,14 @@ We had a **record turnout** for the fourth Saturday canvassing in **Modesto** on
 
 **First time volunteers are welcome**! Training is provided on site each time we go out to canvas and **new volunteers are paired with an experienced partner**. While many may be nervous about canvassing, originally reluctant volunteers regularly report how **easy and enjoyable** the experience turned out to be. Engaging with voters **face-to-face** is one of the most **effective** methods for winning political campaigns. Canvassing involves knocking on doors of mostly **registered Democrats**, and your primary goal is **providing information** rather than changing minds.
 
-[Swing Left "**Blue Wave**" National Tour](https://www.evensi.com/swing-left-blue-wave-tour-rino-district-denver/243443207) Coming to SF, March 3, 2018 
-Swing Left national organizers will be traveling around the country to meet, strategize, and have fun with local activists who are passionate about flipping the House and they will be in San Francisco on March 3
+[Swing Left "**Blue Wave**" National Tour](https://www.evensi.com/swing-left-blue-wave-tour-rino-district-denver/243443207) Coming to **SF, March 3, 2018** 
+Swing Left national organizers will be traveling around the country to **meet, strategize, and have fun** with local activists who are passionate about flipping the House and they will be in **San Francisco on March 3**
 
 Join veteran organizers working on Swing Left's national team, including former staffers for the Obama and Clinton campaigns, to learn more about the Swing Left strategy, meet other activists in your area, and connect with all the things you can do to get involved or take your involvement to the next level. You'll leave inspired, motivated, and with a clear plan of action-knowing exactly what you can do next to have a big, tangible impact on ushering a Democratic majority into the House in November.
 
-RSVP now to attend
-Host a Fundraising House Party This Winter
+[RSVP now to attend](https://actionnetwork.org/events/the-swing-left-blue-wave-national-tour-2018-comes-to-san-francisco-march-3-2018?refcode=em_20180122_tour&link_id=1&can_id=1dc5066a5d1a5d0c0cd27729589142b4&source=email-announcing-the-swing-left-blue-wave-tour-coming-soon-to-a-city-near-you&email_referrer=email_289563&email_subject=announcing-the-swing-left-blue-wave-tour-coming-soon-to-a-city-near-you)
+
+[Host a Fundraising House Party This Winter](https://actionnetwork.org/event_campaigns/better-presidents-wknd-of-action?source=direct_link&&link_id=1&can_id=1dc5066a5d1a5d0c0cd27729589142b4&email_referrer=email_288189&email_subject=lets-make-it-a-better-presidents-day)
 This winter, Swing Left volunteers are working together to raise as much money as possible for the Democratic nominees running in 70 Swing Districts in the midterms. A whole bunch of Swing Left volunteers across the country are planning to host fundraising house parties over the holiday weekend coming up next month with the theme of “A Better Presidents' Day.” Fundraisers can include anything from a small fundraiser at your home to a major bash.
  
 Sign up here to host a fundraiser over Presidents' Day weekend.
