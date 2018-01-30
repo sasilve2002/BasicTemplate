@@ -13,8 +13,8 @@ We had a **record turnout** for the fourth Saturday canvassing in **Modesto** on
  
 [**CA-21**](https://ballotpedia.org/California%27s_21st_Congressional_District_election,_2018): Events are scheduled for the weekends of **February 10/11** and **February 17/18**. These weekend trips include two canvassing rounds on **Saturday at 10 am** and **1:00 pm**, and one at **11 am Sunday morning**. You can attend all three or just one canvassing round each weekend.
 
-- [Kerman on February 10/11 (CA-21) - REGISTER](https://actionnetwork.org/events/swing-left-canvass-3)
-- [Lemoore on February 17/18 (CA-21) - REGISTER](https://actionnetwork.org/events/swingleft-canvass)
+- [**Kerman** on **February 10/11** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swing-left-canvass-3)
+- [**Lemoore** on **February 17/18** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swingleft-canvass)
 
     
 [**REGISTER**](https://actionnetwork.org/events/swingleft-canvass)
