@@ -16,9 +16,6 @@ We had a **record turnout** for the fourth Saturday canvassing in **Modesto** on
 - [**Kerman** on **February 10/11** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swing-left-canvass-3)
 - [**Lemoore** on **February 17/18** (CA-21) - **REGISTER**](https://actionnetwork.org/events/swingleft-canvass)
 
-    
-[**REGISTER**](https://actionnetwork.org/events/swingleft-canvass)
-
 **First time volunteers are welcome**! Training is provided on site each time we go out to canvas and **new volunteers are paired with an experienced partner**. While many may be nervous about canvassing, originally reluctant volunteers regularly report how **easy and enjoyable** the experience turned out to be. Engaging with voters **face-to-face** is one of the most **effective** methods for winning political campaigns. Canvassing involves knocking on doors of mostly **registered Democrats**, and your primary goal is **providing information** rather than changing minds.
 
 [Swing Left "**Blue Wave**" National Tour](https://www.evensi.com/swing-left-blue-wave-tour-rino-district-denver/243443207) Coming to **SF, March 3, 2018** 
