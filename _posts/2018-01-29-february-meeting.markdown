@@ -21,5 +21,7 @@ If you can **bring a laptop**, we can discover how to **text folks , from the co
 **Feb. 6, 2018**
 **7:30-9:00 pm**
 
+** BRING A FRIEND **
+
 Please email me for the address:
 sasilve2002@gmail.com
