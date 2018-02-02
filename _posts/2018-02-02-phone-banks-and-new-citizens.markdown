@@ -12,19 +12,17 @@ Excerpted from [**Democracy Action**](https://demaction.us/) :
 
 [**Click here to see the schedule and to sign up**.](https://demaction.us/)
 
-New Citizens Swearing In Ceremonies
-Please plan to arrive on time for either event so we can do a training and distribute the volunteers between the two stations. If you plan to drive, allow 30-45 minutes to look for parking which fills up very early. This is an outdoor standing event so please be prepared to stand for up to 2 hours and dress according to the weather (casual is fine).
-The Paramount Theatre is 1/2 block from the 19th St. BART station. Please RSVP below:
+"  **New Citizens Swearing In Ceremonies**
+Please plan to **arrive on time** for either event so we can do a **training** and distribute the volunteers between the two stations. If you plan to drive, **allow 30-45 minutes to look for parking** which fills up very early. This is an **outdoor standing event** so please be prepared to stand for up to **2 hours** and dress according to the weather (casual is fine).
+[**The Paramount Theatre**](http://www.paramounttheatre.com/) is 1/2 block from the **19th St. BART** station. Please **RSVP** below:
 
-February, 15 am, 10 am: RSVP
+**February, 15 am, 10 am**: [**RSVP**](https://www.eventbrite.com/e/register-new-citizens-to-vote-morning-registration-41912679954)
 
-February 15, 2 pm: RSVP
+**February 15, 2 pm**: [**RSVP**](https://www.eventbrite.com/e/register-new-citizens-to-vote-afternoon-registration-41912752170)
 
 Thank You to those of you who join us regularly. This is one of the really joyous events we do.
 
-PHONE BANKS AROUND THE BAY:
-The Democracy Action network now has Phone Bank listings for San Francisco, East Bay, and Marin, with more coming online soon. We are still making calls to voters in other states to ask them to call their Members of Congress about a clean Dream Act vote.The next Budget Showdown is on Feb. 8th when this will be a big factor re: Gov. Shutdown again. We will also have call lists for Conor Lamb in the special election in PA-18, and more popping up as they occur. We continue our work recruiting volunteers for CD-10.
+**PHONE BANKS AROUND THE BAY**:
+The [**Democracy Action**](https://demaction.us/) network now has **Phone Bank** listings for **San Francisco, East Bay, and Marin**, with more coming online soon. We are still making calls to **voters in other states** to ask them to call their Members of Congress about a **clean Dream Act vote**.The next Budget Showdown is on Feb. 8th when this will be a big factor re: **Gov. Shutdown** again. We will also have call lists for [**Conor Lamb**](https://conorlamb.com/) in the **special election** in **PA-18**, and more popping up as they occur. We continue our work **recruiting volunteers for CD-10**.
 
-FIND A PHONE BANK OR EVENT NEAR YOU
-﻿
-Check in at www.demaction.us for updates.
+**[Click here to FIND A PHONE BANK OR EVENT NEAR YOU](www.demaction.us)﻿**
