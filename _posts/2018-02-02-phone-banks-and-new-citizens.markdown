@@ -14,7 +14,7 @@ Excerpted from [**Democracy Action**](https://demaction.us/) :
 
 "  **New Citizens Swearing In Ceremonies**
 Please plan to **arrive on time** for either event so we can do a **training** and distribute the volunteers between the two stations. If you plan to drive, **allow 30-45 minutes to look for parking** which fills up very early. This is an **outdoor standing event** so please be prepared to stand for up to **2 hours** and dress according to the weather (casual is fine).
-[**The Paramount Theatre**](http://www.paramounttheatre.com/) is 1/2 block from the **19th St. BART** station. Please **RSVP** below:
+[**The Paramount Theatre**](http://www.paramounttheatre.com/) is 1/2 block from the **19th St. BART** station. Please **RSVP** below:  "
 
 **February, 15 am, 10 am**: [**RSVP**](https://www.eventbrite.com/e/register-new-citizens-to-vote-morning-registration-41912679954)
 
