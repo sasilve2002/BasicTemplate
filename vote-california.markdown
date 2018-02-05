@@ -46,3 +46,12 @@ Excerpted from [**whatdoidoabouttrump.com**](http://whatdoidoabouttrump.com/) :
 This is a **site** : [**issuevoter.org**](https://issuevoter.org/) -
  which seems to be a cool way to **engage immediately with issues** in which you are especially interested.  **You choose** the **issue**, a **bill** about the issue pops up, **you vote**, then **they send** your "**comment**" to your representatives.
 
+....................................................................................................................................
+
+From [**Democracy.io**](https://democracy.io/#!/) : 
+
+"  **Failure** to effectively **reach** members of **Congress** has **disastrous** consequences. Studies show that politicians fundamentally **misconceive their constituents’ views**, making it harder for them to represent us in the lawmaking process.  "
+
+"  That’s why we built [**Democracy.io**](https://democracy.io/#!/): **a new tool** to put you in touch with your members of Congress—with as **few clicks as possible**."
+
+[**Click here to write your letter**.](https://democracy.io/#!/). 
