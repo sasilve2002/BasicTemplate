@@ -1,7 +1,6 @@
 ---
 title: Know Your Rights
 date: 2018-01-19 07:00:00 -08:00
-published: false
 ---
 
 From the [**ACLU**](https://www.aclu.org/) :
