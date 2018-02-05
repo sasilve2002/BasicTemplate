@@ -21,7 +21,7 @@ From [**State Strong California**](https://ca.state-strong.org/):
 
 ....................................................................................................................................
 
-***Your Local and State Representatives***:
+***Your Local and State Governments***:
 
 [**Click here** to find **contact** information for **local governments** by state.](https://www.usa.gov/local-governments)
 
