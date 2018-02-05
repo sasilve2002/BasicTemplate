@@ -39,3 +39,10 @@ From [**Countable**](https://www.countable.us/articles/734-s-congress-voting-wee
 
 [**Click here** to go to a cool website](https://www.countable.us/) which **keeps track** of **what bills Congress is voting** on any given week!  You get a chance to **send your vote to your rep automatically** !
 
+....................................................................................................................................
+
+Excerpted from [**whatdoidoabouttrump.com**](http://whatdoidoabouttrump.com/) :
+
+This is a **site** : [**issuevoter.org**](https://issuevoter.org/) -
+ which seems to be a cool way to **engage immediately with issues** in which you are especially interested.  **You choose** the **issue**, a **bill** about the issue pops up, **you vote**, then **they send** your "**comment**" to your representatives.
+
