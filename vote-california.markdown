@@ -13,7 +13,7 @@ date: 2018-02-05 14:43:00 -08:00
  
 ....................................................................................................................................
 
-[**Click here**](https://votersedge.org/ca) to find information about your **local** as well as **statewide** **candidates** and **measures** along with a **polling place** look up.
+From **[Voters Edge](https://votersedge.org/en/ca)** : [**Click here**](https://votersedge.org/ca) to find information about your **local** as well as **statewide** **candidates** and **measures** along with a **polling place** look up.
 
 ....................................................................................................................................
 
