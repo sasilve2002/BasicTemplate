@@ -13,7 +13,7 @@ date: 2018-02-05 14:43:00 -08:00
 
 ....................................................................................................................................
 
-From [**State Strong California**](https://ca.state-strong.org/):
+From **[State Strong California](https://ca.state-strong.org/index.php/guide/)**
 
 **Hold your State Representatives accountable!**
 
