@@ -25,6 +25,12 @@ Please follow the instructions below to join us on the app:
 2. When it asks, use the Postcards to Voters invite code: 051716000
 3. Take an action & cheer others on! "
  
+[**http://takeastance.us**/](http://takeastance.us/)
+The most impactful
+way to contact your
+elected representatives.
+Record a voice message anytime, anywhere. Stance will send it directly to your representative's phone.
+IPHONE
 
 
 ## **More Actions:**
@@ -34,7 +40,6 @@ Please follow the instructions below to join us on the app:
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
 
-[http://takeastance.us/](http://takeastance.us/)
 
 
 ## ***More Groups***:
