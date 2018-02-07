@@ -34,6 +34,9 @@ Please follow the instructions below to join us on the app:
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
 
+[http://takeastance.us/](http://takeastance.us/)
+
+
 ## ***More Groups***:
 
 **THE GROUPS REJUVENATING THE DEMOCRATS**
