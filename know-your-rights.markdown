@@ -13,6 +13,5 @@ From the [**ACLU**](https://www.aclu.org/) :
 
 [**Immigrant Legal Resource Center (ILRC)**](https://www.ilrc.org/who-we-are)
 
-https://www.ilrc.org/red-cards
-Red Cards
+[Red Cards](https://www.ilrc.org/red-cards)
 All people in the United States, regardless of immigration status, have certain rights and protections under the U.S. Constitution. The ILRC’s Red Cards help people assert their rights and defend themselves in many situations, such as when ICE agents go to a home.
