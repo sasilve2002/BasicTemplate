@@ -15,6 +15,8 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**https://roganslist.blogspot.com/**](http://roganslist.blogspot.com/) - a daily, thoroughly vetted action list for people who are unhappy with the current administration and who want to become more politically involved, but do not have time for the research.
 
+[**contact@getamplify.org**](contact@getamplify.org) Postcards to Voters 
+
 
 ## **More Actions:**
 
