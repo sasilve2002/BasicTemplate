@@ -17,7 +17,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**https://contact@getamplify.org**](http://contact@getamplify.org) 
 
-**Postcards to Voters** : a new tool that we think will increase our collective impact by sending out our recommended calls to action via [**Amplify**](http://contact@getamplify.org), an app developed by **Indivisible San Francisco** for itself and other groups.
+**Postcards to Voters** : a new tool that we think will increase our collective impact by sending out our recommended calls to action via [**Amplify**](http://contact@getamplify.org), an app developed by **[Indivisible San Francisco](http://www.indivisiblesf.org/)** for itself and other groups.
 
 
 
