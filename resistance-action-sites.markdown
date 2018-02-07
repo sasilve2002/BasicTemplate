@@ -26,11 +26,9 @@ Please follow the instructions below to join us on the app:
 3. Take an action & cheer others on! "
  
 [**http://takeastance.us**/](http://takeastance.us/)
-The most impactful
-way to contact your
-elected representatives.
-Record a voice message anytime, anywhere. Stance will send it directly to your representative's phone.
-IPHONE
+"The most impactful way to contact your elected representatives.
+Record a voice message anytime, anywhere. Stance will send it directly to your representative's phone."
+
 
 
 ## **More Actions:**
