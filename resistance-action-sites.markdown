@@ -15,7 +15,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**https://roganslist.blogspot.com/**](http://roganslist.blogspot.com/) - a daily, thoroughly vetted action list for people who are unhappy with the current administration and who want to become more politically involved, but do not have time for the research.
 
-[**https://contact@getamplify.org**](http://contact@getamplify.org) - **[Postcards to Voters](https://postcardstovoters.org/)** : a new tool that we think will increase our collective impact by sending out our recommended calls to action via [**Amplify**](http://contact@getamplify.org), an app developed by **[Indivisible San Francisco](http://www.indivisiblesf.org/)** for itself and other groups.
+[**https://contact@getamplify.org**](http://contact@getamplify.org) - [**Postcards to Voters**](https://postcardstovoters.org/) : a new tool that we think will increase our collective impact by sending out our recommended calls to action via [**Amplify**](http://contact@getamplify.org), an app developed by **[Indivisible San Francisco](http://www.indivisiblesf.org/)** for itself and other groups.
 
 
 
