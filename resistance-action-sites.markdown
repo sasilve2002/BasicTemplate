@@ -15,7 +15,16 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**https://roganslist.blogspot.com/**](http://roganslist.blogspot.com/) - a daily, thoroughly vetted action list for people who are unhappy with the current administration and who want to become more politically involved, but do not have time for the research.
 
-[**contact@getamplify.org**](contact@getamplify.org) Postcards to Voters 
+[**contact@getamplify.org**](contact@getamplify.org) Postcards to Voters : "We're excited to announce a new tool that we think will increase our collective impact. We have begun sending out our recommended calls to action via Amplify, an app developed by Indivisible San Francisco for itself and other groups.
+
+We all want to be in the habit of doing the weekly Postcards to Voters actions. But it's hard to do that if it feels like we're each acting alone. On Amplify, we can all see each other taking action, and cheer each other on. You can view scripts and call Members of Congress right from the app, so it will be easy to take action whenever you have a few minutes.
+
+Please follow the instructions below to join us on the app:
+
+1. Use your phone to go to https://getamplify.org/install
+2. When it asks, use the Postcards to Voters invite code: 051716000
+3. Take an action & cheer others on! "
+ 
 
 
 ## **More Actions:**
