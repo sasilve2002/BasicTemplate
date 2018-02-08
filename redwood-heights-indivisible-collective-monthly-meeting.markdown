@@ -1,6 +1,6 @@
 ---
 title: "Another \nNeighborhood \nIndivisible Group:\nRedwood Heights \nIndivisible
-  Collective"
+  Collective (RHIC)"
 date: 2017-12-02 11:02:00 -08:00
 ---
 
