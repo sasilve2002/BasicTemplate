@@ -7,4 +7,4 @@ Excerpted from [The Sanders Institute](https://www.sandersinstitute.com/issues/i
 
 There are a lot of labels and terms for immigrants.  What do they mean?
 
-[**Click here for an indepth look**.](https://www.sandersinstitute.com/issues/immigration)
+[**Click here for a clear description **.](https://www.sandersinstitute.com/issues/immigration)
