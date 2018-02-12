@@ -15,7 +15,9 @@ Excerpted from the [**ACLU** (Americans Civil Liberties Union) ](https://www.acl
 
 Tuesday,
 
-February 20, 6:30 PM
+February 20, 
+
+6:30 PM
 
 Kehilla Community Synagogue
 
