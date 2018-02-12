@@ -9,7 +9,7 @@ Excerpted from the [**Daily Kos**](https://www.dailykos.com/) :
 
 This is an **opportunity** to secure legislative protections for **immigrant youth**. We need a final bill that safeguards the **most people and does the least harm** to families and communities. 
 
-It'll be an **uphill battle** but [**DREAMers**](https://www.theguardian.com/us-news/2017/sep/04/donald-trump-what-is-daca-dreamers) are supported **across partisan lines** and both sides are looking for a win. Let's make sure **pro-migrants and people of conscience** are **louder** than **MAGA** ("make America great again") and **white supremacists**."
+It'll be an **uphill battle** but [**DREAMers**](https://www.theguardian.com/us-news/2017/sep/04/donald-trump-what-is-daca-dreamers) are supported **across partisan lines** and both sides are looking for a win. Let's make sure **pro-migrants and people of conscience** are **louder** than **MAGA** ("*make America great again*") and **white supremacists**."
   
 "Call Senator Kamala D. Harris at (202) 224-3553 and Senator Dianne Feinstein at (202) 224-3841. Demand they support narrow legislation that focuses on protections for immigrant youth."
 
