@@ -5,7 +5,7 @@ date: 2018-02-12 06:37:00 -08:00
 
 Excerpted from the [**ACLU** (Americans Civil Liberties Union) ](https://www.aclu.org/) :
 
-"Join [**ACILEP**](https://centrolegal.org/alameda-county-immigration-legal-education-partnerships-response-ice-activity-oakland/)’s Rapid Response Network 
+"Join [ACILEP](https://centrolegal.org/alameda-county-immigration-legal-education-partnerships-response-ice-activity-oakland/)’s Rapid Response Network 
 
 [The **Alameda County Immigration Legal and Education Partnership** (**ACILEP**)](https://centrolegal.org/alameda-county-immigration-legal-education-partnerships-response-ice-activity-oakland/) invites you to join our team of volunteer responders to resist the raids and deportations."
 
