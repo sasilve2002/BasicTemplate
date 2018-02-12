@@ -15,5 +15,9 @@ It'll be an **uphill battle** but [**DREAMers**](https://www.theguardian.com/us-
 
 ***Sample Script***:
 
-Hi, my name is [first name] from [zip code] in Oakland. I am calling to urge Senator Kamala D. Harris and Senator Dianne Feinstein to focus on a narrow bill that protects immigrant youth from deportation. Dreamers are widely supported across partisan lines. There is no acceptable reason to continue delaying. Let's focus on a bill that most Americans would support -- one that primarily protects immigrant youth -- and address larger questions on immigration another day. Thank you for your time.
+***Hi, my name is [first name] from [zip code] in Oakland. I am calling to urge Senator Kamala D. Harris and Senator Dianne Feinstein to focus on a narrow bill that protects immigrant youth from deportation. Dreamers are widely supported across partisan lines. There is no acceptable reason to continue delaying. Let's focus on a bill that most Americans would support -- one that primarily protects immigrant youth -- and address larger questions on immigration another day. Thank you for your time.***
+
+Once you've placed the call, click here to tell us how it went. We are keeping a running tally of calls.
+
+Finished your call or can't get through? Sign and send a petition to Senator Kamala D. Harris and Senator Dianne Feinstein: Immigrant youth can't wait. Pass the Dream Act NOW!
 
