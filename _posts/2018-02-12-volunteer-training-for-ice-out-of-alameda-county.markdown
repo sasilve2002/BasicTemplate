@@ -14,15 +14,10 @@ Excerpted from the [**ACLU** (Americans Civil Liberties Union) ](https://www.acl
 "Rehearse critical & creative **tactics** for effective action!"
 
 Tuesday,
- 
 February 20, 6:30 PM
-
 Kehilla Community Synagogue
-
 1300 Grand Ave.
-
 Piedmont, CA 94610
-
 
 "Please [**click here**](https://docs.google.com/forms/d/e/1FAIpQLSfzGFq_uEouMhd8dNGcEkEPD9d-IVJIoMsTCuHcYjyF_eY_fw/viewform) to **register** at [www.tinyurl.com/acilep](https://docs.google.com/forms/d/e/1FAIpQLSfzGFq_uEouMhd8dNGcEkEPD9d-IVJIoMsTCuHcYjyF_eY_fw/viewform) so that we can bring enough training materials.
 
