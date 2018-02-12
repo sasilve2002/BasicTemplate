@@ -3,7 +3,7 @@ title: Volunteer Training for ICE Out of Alameda County
 date: 2018-02-12 06:37:00 -08:00
 ---
 
-Excerpted from the [**ACLU** (Americans Civil Liberties Union) ](https://www.aclu.org/)
+Excerpted from the [**ACLU** (Americans Civil Liberties Union) ](https://www.aclu.org/) :
 
 "**Join [**ACILEP**](https://centrolegal.org/alameda-county-immigration-legal-education-partnerships-response-ice-activity-oakland/)’s Rapid Response Network** 
 
