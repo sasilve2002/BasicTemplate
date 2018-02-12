@@ -23,6 +23,6 @@ Kehilla Community Synagogue
 
 Piedmont, CA 94610
 
-"Please [**click here**](https://docs.google.com/forms/d/e/1FAIpQLSfzGFq_uEouMhd8dNGcEkEPD9d-IVJIoMsTCuHcYjyF_eY_fw/viewform) to **register** so that we can bring enough training materials.
+"Please [**click here**](https://docs.google.com/forms/d/e/1FAIpQLSfzGFq_uEouMhd8dNGcEkEPD9d-IVJIoMsTCuHcYjyF_eY_fw/viewform) to **register** so that we can bring enough training materials."
 
 
