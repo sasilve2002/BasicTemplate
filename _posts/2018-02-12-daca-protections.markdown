@@ -11,9 +11,9 @@ This is an **opportunity** to secure legislative protections for **immigrant you
 
 It'll be an **uphill battle** but [**DREAMers**](https://www.theguardian.com/us-news/2017/sep/04/donald-trump-what-is-daca-dreamers) are supported **across partisan lines** and both sides are looking for a win. Let's make sure **pro-migrants and people of conscience** are **louder** than **MAGA** ("*make America great again*") and **white supremacists**."
   
-"Call Senator Kamala D. Harris at (202) 224-3553 and Senator Dianne Feinstein at (202) 224-3841. Demand they support narrow legislation that focuses on protections for immigrant youth."
+"**Call** Senator Kamala D. **Harris** at **(202) 224-3553** and Senator Dianne **Feinstein** at **(202) 224-3841**. Demand they support narrow legislation that focuses on protections for immigrant youth."
 
-Sample Script:
+***Sample Script***:
 
 Hi, my name is [first name] from [zip code] in Oakland. I am calling to urge Senator Kamala D. Harris and Senator Dianne Feinstein to focus on a narrow bill that protects immigrant youth from deportation. Dreamers are widely supported across partisan lines. There is no acceptable reason to continue delaying. Let's focus on a bill that most Americans would support -- one that primarily protects immigrant youth -- and address larger questions on immigration another day. Thank you for your time.
 
