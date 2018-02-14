@@ -11,7 +11,7 @@ Excerpted from [**Ballotpedia**](https://ballotpedia.org/Main_Page) :
 
 "[**Ballotpedia**](https://ballotpedia.org/Main_Page) is the **online encyclopedia** of American **politics and elections**. Our goal is to inform people about politics by providing **accurate and objective information** about politics at all levels of government."
 
-[Click here for Ballotpedia's election page.](https://ballotpedia.org/Elections)
+[**Click here** for Ballotpedia's **election** page.](https://ballotpedia.org/Elections)
 
 ....................................................................................................................................
 
