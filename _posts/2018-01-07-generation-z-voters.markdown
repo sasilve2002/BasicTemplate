@@ -3,6 +3,11 @@ title: Generation Z Voters
 date: 2018-01-07 16:53:00 -08:00
 ---
 
+Excerpted from [18by18.vote](https://www.18by18.vote/) :
+
+"If you’ll be 18 by November 6th 2018, you can vote. Make your voice heard – shape the future of your country."  [Click here for more information](https://www.18by18.vote/).
+
+
 Excerpted from [**Wall of Us**](https://www.wallofus.org/)  :
 
 "  **Generation Z** is the generation after the millennials, born between **1998 and 2016**. Progressive Gen Zers turning **18 before November 6th** can give all-of-us a gift this year by voting! 
