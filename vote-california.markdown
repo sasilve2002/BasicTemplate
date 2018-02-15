@@ -81,3 +81,9 @@ From [**Democracy.io**](https://democracy.io/#!/) :
 [**Click here** for your **Alameda County Board of Supervisors**](https://www.acgov.org/board/). 
 
 [**Click here**](http://www.acgov.org/ms/addresslookup/Default.aspx) to find **your district**.
+
+....................................................................................................................................
+
+From the folks at **[Courage Campaign](https://www.couragecampaign.org/)**:
+
+Want to know **how your representatives are doing**?  [**Click here**](http://www.couragescore.org/), for your reps' **report card**:
