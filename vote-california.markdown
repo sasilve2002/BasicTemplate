@@ -84,12 +84,6 @@ From [**Democracy.io**](https://democracy.io/#!/) :
 
 ....................................................................................................................................
 
-From the folks at **[Courage Campaign](https://www.couragecampaign.org/)**:
-
-Want to know **how your representatives are doing**?  [**Click here**](http://www.couragescore.org/), for your reps' **report card**.
-
-....................................................................................................................................
-
 ***Give a voter a ride to the polls***:
 
 Excerpted from [**Carpool Vote**](http://carpoolvote.com/)
