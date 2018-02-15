@@ -90,5 +90,8 @@ Want to know **how your representatives are doing**?  [**Click here**](http://ww
 
 ....................................................................................................................................
 
+***Give a voter a ride to the polls***:
 
-http://carpoolvote.com/
+Excerpted from [Carpool Vote](http://carpoolvote.com/)
+Every American DESERVES a Vote
+We connect volunteer drivers with anybody who needs a ride to claim their vote.
