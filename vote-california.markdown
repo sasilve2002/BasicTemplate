@@ -95,4 +95,4 @@ Want to know **how your representatives are doing**?  [**Click here**](http://ww
 Excerpted from [**Carpool Vote**](http://carpoolvote.com/)
 
 "Every American DESERVES a Vote
-We connect volunteer drivers with anybody who needs a ride to claim their vote.  [Click here to sign up](http://carpoolvote.com/).
+We connect volunteer drivers with anybody who needs a ride to claim their vote.  [**Click here to sign up**](http://carpoolvote.com/).
