@@ -23,6 +23,6 @@ Thank You to those of you who join us regularly. This is one of the really joyou
 ##################################################################
 
 **PHONE BANKS AROUND THE BAY**:
-The [**Democracy Action**](https://demaction.us/) network now has **Phone Bank** listings for **San Francisco, East Bay, and Marin**, with more coming online soon. We are still making calls to **voters in other states** to ask them to call their Members of Congress about a **clean Dream Act vote**.
+"The [**Democracy Action**](https://demaction.us/) network now has **Phone Bank** listings for **San Francisco, East Bay, and Marin**, with more coming online soon. We are still making calls to **voters in other states** to ask them to call their Members of Congress about a **clean Dream Act vote**."
 
 [**Click here to FIND A PHONE BANK OR EVENT NEAR YOU**](https://demaction.us/).
