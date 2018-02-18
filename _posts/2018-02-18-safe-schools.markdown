@@ -3,7 +3,7 @@ title: Safe Schools
 date: 2018-02-18 08:25:00 -08:00
 ---
 
-Excerpted from the [**NEA** (National Education Associationl)](http://www.nea.org/):
+Excerpted from the [**NEA** (National Education Association)](http://www.nea.org/):
 
 "Pass common-sense gun violence laws now."
 
