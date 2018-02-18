@@ -24,7 +24,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
 
-
+[https://jenniferhofmann.com/home/weekly-action-checklist-democrats-independents-republicans-conscience/](https://jenniferhofmann.com/home/weekly-action-checklist-democrats-independents-republicans-conscience/) : No matter your political stripe, Americans are good, generous people who pull together in a pinch. Katrina. New York. Sandy Hook. When the chips are down, we look out for each other.
 
 
 
