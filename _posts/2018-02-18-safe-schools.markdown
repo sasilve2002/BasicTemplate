@@ -10,5 +10,3 @@ Excerpted from the [**NEA** (National Education Associationl)](http://www.nea.or
 
 [Click here to write a **letter to our senators**.](http://edadvocacy.nea.org/app/write-a-letter?17&engagementId=222053&ep=AAAAC2Flc0NpcGhlcjAxqaFIEapJGPndvUUuL88QyVJO-yMPtFRVywlTGgqSM4buG6ITOn_j1KtjSYO1qkK2L_yduHSB-FXJ779bj_f0edR-r0Hv2nwjREwr7bLhMnM&lp=0)
 
-
-http://edadvocacy.nea.org/app/write-a-letter?14&engagementId=222053
