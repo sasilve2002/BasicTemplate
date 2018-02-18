@@ -24,6 +24,8 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**http://rebuildthehope.org/organizations/** : list of action groups](http://rebuildthehope.org/organizations/)
 
+[**https://jenniferhofmann.com/home/weekly-action-checklist-democrats-independents-republicans-conscience/**]) : scroll down the page to find the latest action.
+
 
 
 ## ***More Groups***:
