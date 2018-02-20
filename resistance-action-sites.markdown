@@ -28,7 +28,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 Excerpted from [https://**crooked.com**/](https://crooked.com/team/):
 
-[Click here to "Do Something!"](https://crooked.com/take-action/)
+[Click here to "**Do Something!**"](https://crooked.com/take-action/)
 
 
 
