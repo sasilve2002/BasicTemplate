@@ -94,6 +94,5 @@ We connect volunteer drivers with anybody who needs a ride to claim their vote. 
 ....................................................................................................................................
 
 From [**Everytown.org**](https://everytown.org/) 
-https://everytown.turbovote.org/?source=etno_TTM&utm_source=et_n_&utm_medium=_o&utm_campaign=TTM&refcode=TTM
-***Quick & Easy register to vote*.**
+***[Click here to Quickly & Easily register to vote](https://everytown.turbovote.org/?source=etno_TTM&utm_source=et_n_&utm_medium=_o&utm_campaign=TTM&refcode=TTM)*.**
 
