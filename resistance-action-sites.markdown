@@ -26,7 +26,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**https://jenniferhofmann.com**/home/weekly-action-checklist-democrats-independents-republicans-conscience/](https://jenniferhofmann.com/home/weekly-action-checklist-democrats-independents-republicans-conscience/) : "No matter your political stripe, Americans are good, generous people who pull together in a pinch. Katrina. New York. Sandy Hook. When the chips are down, we look out for each other."  Scroll down her page to find the latest action.
 
-[https://**crooked.com**/](https://crooked.com/team/), the folks from "[**Pod Save America**](https://art19.com/shows/pod-save-america)" :  [Click here to "**Do Something!**"](https://crooked.com/take-action/)
+[**https://crooked.com/**](https://crooked.com/team/), the folks from "[**Pod Save America**](https://art19.com/shows/pod-save-america)" :  [Click here to "**Do Something!**"](https://crooked.com/take-action/)
 
 
 
