@@ -4,19 +4,22 @@ date: 2018-02-18 08:25:00 -08:00
 ---
 
 ***Good News***:  All our reps get an **A+ - Neither Feinstein, Harris, nor Lee** have received money from the NRA !
+
 _____________________
 
 Excerpted from [**noNRAmoney.org**](https://www.nonramoney.org/):
 
 "A Pledge by Individuals to oppose any candidate for any office who takes NRA money or touts a favorable rating by the NRA."
 
-[**Click here to take the pledge**](https://www.nonramoney.org/). 
+[**Click here to take the pledge**](https://www.nonramoney.org/).
+ 
 _____________________
 
 Excerpted from [**Newsweek**](http://www.newsweek.com/) :
 "WOMAN MAILS '**THOUGHTS AND PRAYERS' CHECK** TO REPUBLICAN CONGRESSMAN AFTER SHOOTING"
 
 [**Click here to see her check**](http://www.newsweek.com/woman-mails-thoughts-and-prayers-check-809846).
+
 _____________________
 
 Excerpted from the [**NEA** (National Education Associationl)](http://www.nea.org/):
