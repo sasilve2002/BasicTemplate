@@ -11,7 +11,9 @@ Excerpted from [**noNRAmoney.org**](https://www.nonramoney.org/):
 
 [**Click here to take the pledge**](https://www.nonramoney.org/). 
 
-Excerpted from [Newsweek](http://www.newsweek.com/) :
+Excerpted from [**Newsweek**](http://www.newsweek.com/) :
+"WOMAN MAILS '**THOUGHTS AND PRAYERS' CHECK** TO REPUBLICAN CONGRESSMAN AFTER SHOOTING"
+[**Click here to see her check**](http://www.newsweek.com/woman-mails-thoughts-and-prayers-check-809846).
 
 Excerpted from the [**NEA** (National Education Associationl)](http://www.nea.org/):
 
