@@ -3,8 +3,8 @@ title: Safe Schools
 date: 2018-02-18 08:25:00 -08:00
 ---
 
-***Good News:  All our reps get an A+ - Neither Feinstein, Harris, nor Lee have received money from the NRA !*
-**
+***Good News***:  All our reps get an **A+ - Neither Feinstein, Harris, nor Lee** have received money from the NRA !
+
 
 Excerpted from [**noNRAmoney.org**](https://www.nonramoney.org/):
 
