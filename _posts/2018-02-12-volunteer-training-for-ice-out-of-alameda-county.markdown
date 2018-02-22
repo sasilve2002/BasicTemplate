@@ -1,6 +1,7 @@
 ---
 title: Volunteer Training for ICE Out of Alameda County
 date: 2018-02-12 06:37:00 -08:00
+published: false
 ---
 
 Excerpted from the [**ACLU** (Americans Civil Liberties Union) ](https://www.aclu.org/) :
