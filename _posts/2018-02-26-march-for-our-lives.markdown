@@ -11,7 +11,7 @@ Excerpted from [**MARCH FOR OUR LIVES**](https://www.marchforourlives.com/).
 
 "We must stand with them and #MarchForOurLives"
 
-**San Francisco Rally**:
+**[San Francisco Rally](https://www.facebook.com/events/1593912047359305)**:
 
 "Organizer:Edward Aten
 Event Website:https://www.facebook.com/events/1593912047359305/
