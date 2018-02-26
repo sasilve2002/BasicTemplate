@@ -14,8 +14,13 @@ Excerpted from [**MARCH FOR OUR LIVES**](https://www.marchforourlives.com/).
 [**San Francisco Rally**](https://www.facebook.com/events/1593912047359305):
 
 "Organizer:Edward Aten
+
 Event Website:https://www.facebook.com/events/1593912047359305/
-Date of Event:Saturday, 24 March, 2018
-Time of Event:1 PM EDT
-Address:San Francisco City Hall
-City:San Francisco"
+
+Date of Event:  Saturday, 24 March, 2018
+
+Time of Event:  1 PM EDT
+
+Address:  San Francisco City Hall
+
+City:  San Francisco"
