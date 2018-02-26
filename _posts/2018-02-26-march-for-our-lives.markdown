@@ -23,4 +23,4 @@ Time of Event:  **1 PM**
 
 Address:  **San Francisco City Hall**
 
-City:  San Francisco"
+City:  **San Francisco**"
