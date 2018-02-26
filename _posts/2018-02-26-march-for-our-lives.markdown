@@ -17,7 +17,7 @@ Excerpted from [**MARCH FOR OUR LIVES**](https://www.marchforourlives.com/).
 
 Event Website: 
  
-**https://www.facebook.com/events/1593912047359305/**
+**[https://www.facebook.com/events/1593912047359305/](https://www.facebook.com/events/1593912047359305/)**
 
 
 Date of Event:  **Saturday, 24 March, 2018**
