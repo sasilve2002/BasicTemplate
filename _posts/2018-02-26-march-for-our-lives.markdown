@@ -19,8 +19,8 @@ Event Website:https://www.facebook.com/events/1593912047359305/
 
 Date of Event:  **Saturday, 24 March, 2018**
 
-Time of Event:  1 PM 
+Time of Event:  **1 PM** 
 
-Address:  San Francisco City Hall
+Address:  **San Francisco City Hall**
 
 City:  San Francisco"
