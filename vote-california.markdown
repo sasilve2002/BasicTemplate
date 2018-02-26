@@ -7,6 +7,11 @@ date: 2018-02-05 14:43:00 -08:00
 
 ##################################################################
 
+Click here for the [**California Easy Voter Guide**](http://www.easyvoterguide.org/).
+
+
+##################################################################
+
 **Click *the bear*** for info on **Voting in California** from the **Secretary of State**:
 
 <a href="http://www.sos.ca.gov/elections/voting-resources/voting-california/"><img class="imgBorderNone" src="http://elections.cdn.sos.ca.gov//images/vote-ca.jpg" alt="Secretary of State - Voting In California" /></a>
