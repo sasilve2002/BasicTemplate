@@ -3,7 +3,7 @@ title: Vote California
 date: 2018-02-05 14:43:00 -08:00
 ---
 
-*The [**13th district**](https://www.govtrack.us/congress/members/CA/13) consists of the northern portion of Alameda County. Cities in the district include **Alameda**, **Albany**, **Berkeley**, **Emeryville**, **Oakland**, **Piedmont**, and **San Leandro***
+*The [**13th district**](https://www.govtrack.us/congress/members/CA/13) consists of the **northern portion of Alameda County**. Cities in the district include **Alameda**, **Albany**, **Berkeley**, **Emeryville**, **Oakland**, **Piedmont**, and **San Leandro***
 
 ##################################################################
 
