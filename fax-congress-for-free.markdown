@@ -7,6 +7,6 @@ Excerpted from [**FaxZERO.com**](https://faxzero.com/) :
 
 **FAX** your legislators for **free**:  
 
-**Reps**:  https://faxzero.com/fax_congress.php
+**Reps**:  [https://faxzero.com/fax_congress.php](https://faxzero.com/fax_congress.php)
 
-**Senate**: https://faxzero.com/fax_senate.php
+**Senate**: [https://faxzero.com/fax_senate.php](https://faxzero.com/fax_senate.php)
