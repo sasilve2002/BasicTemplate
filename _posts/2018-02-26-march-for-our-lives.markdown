@@ -13,7 +13,7 @@ Excerpted from [**MARCH FOR OUR LIVES**](https://www.marchforourlives.com/).
 
 [**San Francisco Rally**](https://www.facebook.com/events/1593912047359305):
 
-"Organizer:Edward Aten
+"Organizer:  Edward Aten
 
 Event Website:https://www.facebook.com/events/1593912047359305/
 
