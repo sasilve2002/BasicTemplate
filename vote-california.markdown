@@ -7,7 +7,7 @@ date: 2018-02-05 14:43:00 -08:00
 
 ##################################################################
 
-[Click here to search for your current districts, and to see how they may have changed as a result of redistricting.](http://www.acgov.org/ms/addresslookup/Default.aspxAlameda County Districts: Old & New Look Up) 
+[**Click here** to search for **your current districts**, and to see how they may have changed as a result of redistricting.](http://www.acgov.org/ms/addresslookup/Default.aspxAlameda County Districts: Old & New Look Up) 
 
 ##################################################################
 
