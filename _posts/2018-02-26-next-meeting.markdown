@@ -13,13 +13,13 @@ I have sent you an email with the address.
 
 Please call me if you have any questions. 
 
-**this Saturday
+**this Saturday**
 
-March 3, 2018
+**March 3, 2018**
 
-10 am - 12 pm
+**10 am - 12 pm**
 
-Oakland 94619**
+**Oakland 94619**
 
 
 
