@@ -7,6 +7,10 @@ date: 2018-02-05 14:43:00 -08:00
 
 ##################################################################
 
+[Click here to search for your current districts, and to see how they may have changed as a result of redistricting.](http://www.acgov.org/ms/addresslookup/Default.aspxAlameda County Districts: Old & New Look Up) 
+
+##################################################################
+
 **Click here** for the [**California Easy Voter Guide**](http://www.easyvoterguide.org/).
 
 "*The **aim** of the Easy Voter Guide project is to make **nonpartisan information** about **why** vote, **how** to vote and **what’s on the ballot** accessible to as many Californians as possible. Founded in 1994, the **Easy Voter Guide project** is a collaboration of the [**League of Women Voters of California Education Fund**](https://cavotes.org/), the [**California State Library**](http://www.library.ca.gov/) and the [**Common Knowledge Group**](http://ckgroup.org/)*."
