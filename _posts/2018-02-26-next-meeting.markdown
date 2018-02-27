@@ -21,7 +21,5 @@ March 3, 2018
 
 Oakland 94619**
 
-**PLEASE PARK ON THE STREET and walk up the drive**.
 
-**Mobility issues**?  *Feel free to drive up the driveway and park near the house.*  **Everyone else, please park on the street.**
 
