@@ -23,9 +23,6 @@ I have sent you an email with the address.
 Please contact me if you have any questions:
 
 Susan Silverman,
-Nothing Rhymes with Orange,
-indivisible94619.com,
-Oakland, CA 94619,
 sasilve2002@gmail.com,
 510-816-3303 (cell),
 510-338-0831 (land) 
