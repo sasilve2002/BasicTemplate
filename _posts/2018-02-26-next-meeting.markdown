@@ -12,9 +12,13 @@ Please come so that our group is represented - ***I believe we can work together
 Please call me if you have any questions. 
 
 **this Saturday
+
 March 3, 2018
+
 10 am - 12 pm
+
 4150 - 39th Ave.
+
 Oakland 94619**
 
 It's the last house on a private drive, at the junction of Victor & 39th Ave., bordered on one side by the 39th Avenue Reservoir.
