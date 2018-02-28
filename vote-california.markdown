@@ -20,7 +20,7 @@ date: 2018-02-05 14:43:00 -08:00
 
 Excerpted from [**Rock the Vote**](https://www.rockthevote.org/):
 
-"Our values and our freedoms are under attack. But we won’t be silenced. It’s up to us to fight back, build our power, and make our voices heard."
+"*Our values and our freedoms are under attack. But we won’t be silenced. It’s up to us to fight back, build our power, and make our voices heard*."
 
 ##################################################################
 
