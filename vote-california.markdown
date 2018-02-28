@@ -16,6 +16,7 @@ date: 2018-02-05 14:43:00 -08:00
 "*The **aim** of the Easy Voter Guide project is to make **nonpartisan information** about **why** vote, **how** to vote and **what’s on the ballot** accessible to as many Californians as possible. Founded in 1994, the **Easy Voter Guide project** is a collaboration of the [**League of Women Voters of California Education Fund**](https://cavotes.org/), the [**California State Library**](http://www.library.ca.gov/) and the [**Common Knowledge Group**](http://ckgroup.org/)*."
 
 ##################################################################
+
 **Click here** for **[Election Reminders](https://www.rockthevote.org/resources/election-reminders/)** from [**Rock the Vote**](https://www.rockthevote.org/):
 
 Excerpted from [**Rock the Vote**](https://www.rockthevote.org/):
