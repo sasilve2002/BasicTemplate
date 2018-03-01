@@ -28,12 +28,11 @@ date: 2017-07-19 07:11:00 -07:00
 
 [**https://crooked.com/**](https://crooked.com/team/), the folks from "[**Pod Save America**](https://art19.com/shows/pod-save-america)" :  [Click here to "**Do Something!**"](https://crooked.com/take-action/)
 
-
+-------------------------------
 
 ## ***More Groups***:
+
 [Tom Steyer](https://en.wikipedia.org/wiki/Tom_Steyer)'s [**NextGen America**](https://nextgenamerica.org/) : "We’re proud to step up the fight for immigrant rights, affordable health care, and core American values." 
-
-
 
 **THE GROUPS REJUVENATING THE DEMOCRATS**
 
