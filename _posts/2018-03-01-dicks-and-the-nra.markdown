@@ -13,8 +13,12 @@ Excerpted from [Postcards from Kate](https://www.postcardsfromkate.org/):
 
 Let's thank [**CEO Edward Stack**](https://en.wikipedia.org/wiki/Edward_W._Stack) for making this decision and having the courage to show that '**enough is enough**.'
 
-**Edward Stack, 
-Chairman and CEO
-Dick's Sporting Goods HQ
-345 Court St.
-Coraopolis, PA 15108**
+**Edward Stack**
+ 
+**Chairman and CEO**
+
+**Dick's Sporting Goods HQ**
+
+**345 Court St.**
+
+**Coraopolis, PA 15108**
