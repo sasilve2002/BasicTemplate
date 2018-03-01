@@ -5,7 +5,7 @@ date: 2018-03-01 07:48:00 -08:00
 
 ***Let's write a feel-good postcard*:**
 
-Excerpted from [Postcards from Kate](https://www.postcardsfromkate.org/):
+Excerpted from [**Postcards from Kate**](https://www.postcardsfromkate.org/):
 
 "[DICK'S Sporting Goods](https://www.dickssportinggoods.com/) announced they will no longer sell [assault-style rifles](https://en.wikipedia.org/wiki/Assault_weapon), high capacity magazines nor guns to anyone under the age of 21. And, they're calling on politicians to pass "common sense gun reform" which would include laws to raise the minimum purchase age to 21, banning assault-type weapons and bump stocks and improving universal background checks.
 
