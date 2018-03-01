@@ -31,7 +31,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 
 ## ***More Groups***:
-[Tom Steyer](https://en.wikipedia.org/wiki/Tom_Steyer)'s [**NextGen America**](https://nextgenamerica.org/) : We’re proud to step up the fight for immigrant rights, affordable health care, and core American values 
+[Tom Steyer](https://en.wikipedia.org/wiki/Tom_Steyer)'s [**NextGen America**](https://nextgenamerica.org/) : "We’re proud to step up the fight for immigrant rights, affordable health care, and core American values." 
 
 
 
