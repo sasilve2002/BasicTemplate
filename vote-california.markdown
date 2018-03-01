@@ -4,6 +4,7 @@ date: 2018-02-05 14:43:00 -08:00
 ---
 
 From [**Ballotpedia**](https://ballotpedia.org/Main_Page):
+
 [**Click here for Alameda County 2018 Municipal Elections**](https://ballotpedia.org/Municipal_elections_in_Alameda_County,_California_(2018)).
  
 ##################################################################
