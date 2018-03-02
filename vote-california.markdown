@@ -5,7 +5,9 @@ date: 2018-02-05 14:43:00 -08:00
 
 Excerpted from [**California Clean Money Campaign**](http://www.cacleanaction.org/) : 
 
-"*Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown*."  [**Click here to read their press release**]((https://www.yesfairelections.org/newslink/ccmc_2017-10-07.php)).
+"*Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown*."  
+
+[**Click here to read their press release**]((https://www.yesfairelections.org/newslink/ccmc_2017-10-07.php)).
 
 ##################################################################
 
