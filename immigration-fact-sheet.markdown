@@ -28,8 +28,11 @@ Excerpted from [**H.E.A.T.Watch**](http://www.heatwatch.org/) :
 [**Click here**](http://www.heatwatch.org/) for more info and what we can do.
 
 **Alameda County H.E.A.T. Watch Tip Line**:
+
 **1-510-208-4959**
+
 Office of the District Attorney, Alameda County
+
 Nancy E. O'Malley, District Attorney
 
 ##################################################################
