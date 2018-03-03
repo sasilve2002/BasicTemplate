@@ -135,5 +135,11 @@ From [**Everytown.org**](https://everytown.org/)
 
 ....................................................................................................................................
 
+[**Education Votes California**](http://educationvotes.nea.org/topics/states/california/) : 
+
+Speak Up For Education and Kids is a community started by the National Education Association. It consists of educators and concerned citizens who believe our nation has a responsibility to invest in education for all students.
+
+
+
 
 
