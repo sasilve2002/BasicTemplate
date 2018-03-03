@@ -7,6 +7,8 @@ date: 2017-07-19 07:11:00 -07:00
 
 **Quick & easy ways to resist while waiting in line, etc.**
 
+[**Chop Wood, Carry Water** Daily Actions Newsletter](https://mailchi.mp/82112fe920bc/chop-wood-carry-water-32?e=9abe0d9e94). 
+
 [**http://whatdoidoabouttrump.com/**](http://whatdoidoabouttrump.com/)
 
 [**https://5calls.org/** : auto connects to MoC's with issues & scripts](https://5calls.org/)
