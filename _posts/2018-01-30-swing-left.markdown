@@ -1,6 +1,7 @@
 ---
 title: Swing Left
 date: 2018-01-30 06:14:00 -08:00
+published: false
 ---
 
 Excerpted from [**Swing Left**](https://swingleft.org/) :
