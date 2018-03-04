@@ -7,7 +7,7 @@ date: 2017-07-19 07:11:00 -07:00
 
 **Quick & easy ways to resist while waiting in line, etc.**
 
-[Drain The NRA](https://www.drainthenra.com/) "...**combats** the **gun lobby’s stranglehold on Congress** by **boycotting** and **divesting** from the gun industry and its corporate partners, while shining a light on those politicians who value the NRA’s financial contributions over the lives of their own constituents."
+[**Drain The NRA**](https://www.drainthenra.com/) "...**combats** the **gun lobby’s stranglehold on Congress** by **boycotting** and **divesting** from the gun industry and its corporate partners, while shining a light on those politicians who value the NRA’s financial contributions over the lives of their own constituents."
 
 [**Chop Wood, Carry Water** Daily Actions Newsletter](https://mailchi.mp/82112fe920bc/chop-wood-carry-water-32?e=9abe0d9e94). 
 
