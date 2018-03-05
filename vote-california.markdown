@@ -5,6 +5,8 @@ date: 2018-02-05 14:43:00 -08:00
 
 *The [**13th district**](https://www.govtrack.us/congress/members/CA/13) consists of the **northern portion of Alameda County**. Cities in the district include **Alameda**, **Albany**, **Berkeley**, **Emeryville**, **Oakland**, **Piedmont**, and **San Leandro***
 
+[**Click here** to search for **your current districts**, and to see how they may have changed as a result of redistricting.](http://www.acgov.org/ms/addresslookup/Default.aspxAlameda County Districts: Old & New Look Up) 
+
 ##################################################################
 
 Excerpted from [**California Clean Money Campaign**](http://www.cacleanaction.org/) : 
@@ -26,10 +28,6 @@ Excerpted from [**Ballotpedia**](https://ballotpedia.org/Main_Page) :
 [**Click here** for Ballotpedia's **election** page.](https://ballotpedia.org/Elections)
 
  
-##################################################################
-
-[**Click here** to search for **your current districts**, and to see how they may have changed as a result of redistricting.](http://www.acgov.org/ms/addresslookup/Default.aspxAlameda County Districts: Old & New Look Up) 
-
 ##################################################################
 
 **Click here** for the [**California Easy Voter Guide**](http://www.easyvoterguide.org/).
