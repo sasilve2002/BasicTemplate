@@ -11,7 +11,7 @@ Excerpted from [Jen Hoffman's **Americans of Conscience Action Checklist**](http
 
 **Feinstein : (415) 393-0707**
 
- **& Harris : (213) 894-5000**
+ **& Harris : (415) 355-9041**
  
 and **Representative Lee : (510) 763-0370.**"
 
