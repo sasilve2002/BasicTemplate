@@ -103,7 +103,7 @@ This is a **site** : [**issuevoter.org**](https://issuevoter.org/) -
 
 From [**Democracy.io**](https://democracy.io/#!/) : 
 
-"  **Failure** to effectively **reach** members of **Congress** has **disastrous** consequences. Studies show that politicians fundamentally **misconceive their constituents’ views**, making it harder for them to represent us in the lawmaking process.  "
+"  **Failure** to effectively **reach** members of **Congress** has **disastrous** consequences. [Studies show](https://promarket.org/study-politicians-vote-will-constituents-35-percent-time/) that politicians fundamentally **misconceive their constituents’ views**, making it harder for them to represent us in the lawmaking process.  "
 
 "  That’s why we built [**Democracy.io**](https://democracy.io/#!/): **a new tool** to put you in touch with your members of Congress—with as **few clicks as possible**."
 
