@@ -7,13 +7,13 @@ Excerpted from [Jen Hoffman's **Americans of Conscience Action Checklist**](http
  
 "***Stand with people in need of medical care***."
 
-**"Call**: the local offices of Senators :
+"**Call**: the local offices of Senators :
 
-**Feinstein : (415) 393-0707
+Feinstein : (415) 393-0707
 
- & Harris : (213) 894-5000**
+ **& Harris : (213) 894-5000**
  
-and Representative **Lee : (510) 763-0370**.
+and **Representative Lee : (510) 763-0370.**
 
 **Sample Script**: 
 
