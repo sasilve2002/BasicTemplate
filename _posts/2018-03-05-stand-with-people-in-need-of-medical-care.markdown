@@ -17,5 +17,5 @@ and **Representative Lee : (510) 763-0370.**
 
 **Sample Script**: 
 
-"***Hi.  My name is ____________ and I’m from [ZIP].  I am concerned about allowing states to impose lifetime caps on Medicaid coverage. I don’t understand why congressional Republicans are **shredding the social safety net**. I want my taxes to provide **medical care to my vulnerable neighbors**. **I oppose Medicaid work-for-service and lifetime caps**. Tell me, how is [*Feinstein , Harris , Lee*] protecting our own citizens’ medical needs*?**"
+"***Hi.  My name is ____________ and I’m from [ZIP].  I am **concerned** about allowing states to impose **lifetime caps on Medicaid coverage**. I don’t understand why congressional Republicans are **shredding the social safety net**. I want my taxes to provide **medical care to my vulnerable neighbors**. **I oppose Medicaid work-for-service and lifetime caps**. Tell me, how is [*Feinstein , Harris , Lee*] protecting our own citizens’ medical needs*?**"
 
