@@ -17,5 +17,5 @@ and **Representative Lee : (510) 763-0370.**"
 
 **Sample Script**: 
 
-"*Hi.  My name is ____________ and I’m from [ZIP].  I am **concerned** about allowing states to impose **lifetime caps on Medicaid coverage**. I don’t understand why congressional Republicans are **shredding the social safety net**. I want my taxes to provide **medical care to my vulnerable neighbors**. **I oppose Medicaid work-for-service and [lifetime caps](http://thehill.com/policy/healthcare/373544-trump-officials-face-decision-on-lifetime-limits-for-medicaid)**.  Thank you and have a great day.*"
+"*Hi.  My name is ____________ and I’m from [ZIP].  I am **concerned** about allowing states to impose **lifetime caps on Medicaid coverage**. I don’t understand why congressional Republicans are **shredding the social safety net**. I want my taxes to provide **medical care to my vulnerable neighbors**. **I oppose [Medicaid work-for-service](https://www.npr.org/sections/health-shots/2018/01/11/577307947/hhs-will-let-states-require-people-to-work-for-medicaid) and [lifetime caps](http://thehill.com/policy/healthcare/373544-trump-officials-face-decision-on-lifetime-limits-for-medicaid)**.  Thank you and have a great day.*"
 
