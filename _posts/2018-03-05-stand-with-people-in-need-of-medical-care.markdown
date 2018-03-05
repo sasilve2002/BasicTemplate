@@ -13,7 +13,7 @@ Excerpted from [Jen Hoffman's **Americans of Conscience Action Checklist**](http
 
  **& Harris : (213) 894-5000**
  
-and **Representative Lee : (510) 763-0370.**
+and **Representative Lee : (510) 763-0370.**"
 
 **Sample Script**: 
 
