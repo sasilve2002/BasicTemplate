@@ -9,6 +9,9 @@ date: 2018-02-05 14:43:00 -08:00
 
 ##################################################################
 
+[**Click here for the Official Election Site of Alameda County**](https://www.acvote.org/index).
+
+##################################################################
 Excerpted from [**California Clean Money Campaign**](http://www.cacleanaction.org/) : 
 
 "*[**AB 249**](https://leginfo.legislature.ca.gov/faces/billTextClient.xhtml?bill_id=201720180AB249), Landmark, first-in-the-nation campaign disclosure legislation, California DISCLOSE Act, signed by Governor Brown*."  
