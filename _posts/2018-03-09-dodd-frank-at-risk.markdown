@@ -13,11 +13,11 @@ Call Senator Feinstein : (415) 393-0707
 
 Sample Script:
 
-***Hi, my name is [NAME] and I'm a constituent from Oakland.
+Hi, my name is [NAME] and I'm a constituent from Oakland.
 
 I'm calling to express my opposition to S. 2155, the Economic Growth, Regulatory Relief, and Consumer Protection Act. It's irresponsible to roll back regulations that protect consumers and banks from risky investments that nearly brought down economy a decade ago. I urge the senator to vote against this legislation.
 
-Thank you for your hard work answering the phones*.**
+Thank you for your hard work answering the phones.
 
-[IF LEAVING A VOICEMAIL: please leave your full street address to ensure your call is tallied]
+**[IF LEAVING A VOICEMAIL: please leave your full street address to ensure your call is tallied]**
 
