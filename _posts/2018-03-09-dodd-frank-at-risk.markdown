@@ -10,6 +10,7 @@ Excerpted from [**5Calls**](https://5calls.org/) :
 "Despite a recent CBO report finding that **S. 2155** would increase the chances of **banks collapsing** due to **decreased oversight**, the bill is moving forward with **bipartisan support** from up to 17 Senate Democrats and Independents. The bill is expected to come to the floor for a vote next week."
 
 Call :
+
 Senator **Feinstein** : **(415) 393-0707**
 
 Senator **Harris** : **(202) 224-3553**
