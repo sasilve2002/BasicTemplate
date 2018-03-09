@@ -5,7 +5,7 @@ date: 2018-03-09 07:23:00 -08:00
 
 Excerpted from [**5Calls**](https://5calls.org/) :
 
-"STOP THE SNEAKY ROLLBACK OF DODD-FRANK PROTECTIONS - VOTE NEXT WEEK"
+"**STOP THE SNEAKY ROLLBACK OF DODD-FRANK PROTECTIONS - VOTE NEXT WEEK**"
 
 "Despite a recent CBO report finding that **S. 2155** would increase the chances of **banks collapsing** due to **decreased oversight**, the bill is moving forward with **bipartisan support** from up to 17 Senate Democrats and Independents. The bill is expected to come to the floor for a vote next week."
 
