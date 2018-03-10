@@ -12,4 +12,6 @@ Excerpted from [**Small Victories**](https://www.celebratesmallvictories.com/) :
 
 " Over **a million Democrats showed up** to vote in the **Texas primary earlier this week**—an **87% spike** in turnout since 2014! **Women won the night**, including these two Latina candidates and this progressive candidate who’s headed to a runoff. We’re also reading up on this underdog, who raised less money than her competitors yet still won her primary."
 
+***YAHOO!***
+
 
