@@ -4,11 +4,13 @@ date: 2018-02-05 14:43:00 -08:00
 ---
 
 **94619 State Assemblymember**:
+
 Rob Bonta (D)
 District 18
 (510) 286-1670
 
 **94619 State Senator**:
+
 Nancy Skinner (D)
 District 9
 (510) 286-1333
