@@ -1,6 +1,7 @@
 ---
 title: Safe Schools
 date: 2018-02-18 08:25:00 -08:00
+published: false
 ---
 
 ***Good News***:  All our reps get an **A+ - Neither Feinstein, Harris, nor Lee** have received money from the NRA !  [**Click here to see the reps who did accept NRA money**](https://splinternews.com/every-member-of-congress-who-took-money-from-the-nra-an-1823035413).
