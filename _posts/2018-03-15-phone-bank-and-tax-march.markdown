@@ -13,7 +13,7 @@ Two events coming up:
 
 Oakland Rockridge
 
-Want to help Swing A District from Red to Blue??? 
+"Want to help Swing A District from Red to Blue??? 
 
 Come make calls and help us identify supporters and volunteers, so we can make sure to win in November.
 
@@ -27,7 +27,7 @@ a pair of headphones/earbuds
 charging cords just in case
 Full address provided after registration. 
 
-"If you have any questions, please email:  phonebank2018@gmail.com"
+If you have any questions, please email:  phonebank2018@gmail.com"
 
 **(2)** **April 15** : Oakland [**Tax March**](https://taxmarch.org/events/?source=rtttemail20180315)
 
