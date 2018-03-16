@@ -11,7 +11,7 @@ Excerpted from [**care4allca.org**](http://care4allca.org/) :
 
 	Connect With Us:
 
-[facebook](https://www.facebook.com/healthaccess/) [twitter](https://twitter.com/healthaccess) BLOG DONATE	Contact Info:
+[facebook](https://www.facebook.com/healthaccess/) [twitter](https://twitter.com/healthaccess) [BLOG](http://health-access.org/blog/) DONATE	Contact Info:
 
 Health Access California
 1127 11th Street Ste. 925
