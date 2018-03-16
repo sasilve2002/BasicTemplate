@@ -9,15 +9,14 @@ Excerpted from [**care4allca.org**](http://care4allca.org/) :
 
 "The [**Care4All California campaign**](http://care4allca.org/) is committed to ensuring that **California** has **100% health coverage**, as well as improving quality, affordability, and equity in our health system."
 
-Universal Coverage
+**Universal Coverage**
 Regardless of immigration status, age, disability, income, or other factors.
 
-Affordable coverage ... so no Californian pays more than a percentage of their income for their premium, on a sliding scale, and lower co-pays and deductibles too.
+**Affordable coverage** ...so no Californian pays more than a percentage of their income for their premium, on a sliding scale, and lower co-pays and deductibles too.
 
-Cost-effective coverage that improves health outcomes and reduces disparities
-Care is focused on value, quality and equity for patients, rather than profits.
+**Cost-effective coverage** that improves health outcomes and reduces disparities.  Care is focused on value, quality and equity for patients, rather than profits.
 
-Public coverage options
+**Public coverage options**
 Determined by public policy and accountability rather than the whims of private insurers. 
 
 
