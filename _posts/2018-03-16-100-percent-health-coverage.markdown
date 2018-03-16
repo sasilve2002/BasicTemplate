@@ -11,7 +11,10 @@ Excerpted from [**care4allca.org**](http://care4allca.org/) :
 
 	Connect With Us:
 
-[**facebook**](https://www.facebook.com/healthaccess/) [**twitter**](https://twitter.com/healthaccess) [**BLOG**](http://health-access.org/blog/) [**DONATE**](http://health-access.org/get-involved/donate.html)	
+[**facebook**](https://www.facebook.com/healthaccess/)
+[**twitter**](https://twitter.com/healthaccess) 
+[**BLOG**](http://health-access.org/blog/) 
+[**DONATE**](http://health-access.org/get-involved/donate.html)	
 
 **Contact** Info:
 
