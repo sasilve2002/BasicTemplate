@@ -19,7 +19,7 @@ Sacramento, CA 95814
 916-497-0923
 www.health-access.org
 
-Find us also in Oakland and Los Angeles.
+Find us also in [Oakland](http://health-access.org/) and Los Angeles.
 
 "Improving access to health care in California, and **moving beyond** the debate over repealing the **ACA** to the **work that still needs to be done**."
 
