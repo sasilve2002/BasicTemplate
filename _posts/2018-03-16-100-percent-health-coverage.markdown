@@ -19,7 +19,7 @@ Health Access California
 1127 11th Street Ste. 925
 Sacramento, CA 95814
 916-497-0923
-[www.health-access.org](http://health-access.org/)
+[**www.health-access.org**](http://health-access.org/)
 
 Find us also in [**Oakland**](http://health-access.org/) and [**Los Angeles**](http://health-access.org/).
 
