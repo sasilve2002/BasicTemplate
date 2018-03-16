@@ -9,6 +9,18 @@ Excerpted from [**care4allca.org**](http://care4allca.org/) :
 
 [**Click here to tell your story.**](https://www.surveymonkey.com/r/ShareYourACAStory)"
 
+	Connect With Us:
+
+[facebook](https://www.facebook.com/healthaccess/) [twitter](https://twitter.com/healthaccess) BLOG DONATE	Contact Info:
+
+Health Access California
+1127 11th Street Ste. 925
+Sacramento, CA 95814
+916-497-0923
+www.health-access.org
+
+Find us also in Oakland and Los Angeles.
+
 "Improving access to health care in California, and **moving beyond** the debate over repealing the **ACA** to the **work that still needs to be done**."
 
 "The [**Care4All California campaign**](http://care4allca.org/) is committed to ensuring that **California** has **100% health coverage**, as well as improving quality, affordability, and equity in our health system."
