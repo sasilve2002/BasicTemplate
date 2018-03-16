@@ -5,7 +5,7 @@ date: 2018-03-16 06:34:00 -07:00
 
 Excerpted from [**care4allca.org**](http://care4allca.org/) :
 
-"[**Health Access California**](http://health-access.org/about-us/health-access-california/) and the [**#Fight4OurHealth**](http://fight4ourhealth.org/) coalition **want to hear from you!**   ...we want to know what **your experience** is with health insurance. Whether or not this is your first time getting it, or if you have a story from before the Affordable Care Act was passed, **we want to hear from you!**  
+"[**Health Access California**](http://health-access.org/about-us/health-access-california/) and the [**#Fight4OurHealth**](http://fight4ourhealth.org/) coalition **[want to hear from you](https://www.surveymonkey.com/r/ShareYourACAStory)!**   ...we want to know what **your experience** is with health insurance. Whether or not this is your first time getting it, or if you have a story from before the Affordable Care Act was passed, **we want to hear from you!**  
 
 [**Click here to tell your story.**](https://www.surveymonkey.com/r/ShareYourACAStory)"
 
