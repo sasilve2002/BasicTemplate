@@ -7,13 +7,13 @@ date: 2018-02-05 14:43:00 -08:00
 
 ##################################################################
 
-**94619 **State Assemblymember****:
+94619 State **Assemblymember**:
 
 [Rob Bonta](https://a18.asmdc.org/) (D)
 [**District 18**](https://statisticalatlas.com/state-lower-legislative-district/California/District-18/Overview)
 (510) 286-1670
 
-**94619 **State Senator****:
+94619 **State Senator**:
 
 [Nancy Skinner](http://sd09.senate.ca.gov/) (D)
 [**District 9**](https://statisticalatlas.com/state-upper-legislative-district/California/District-9/Overview)
