@@ -16,7 +16,7 @@ date: 2018-02-05 14:43:00 -08:00
 **94619 State Senator**:
 
 [Nancy Skinner](http://sd09.senate.ca.gov/) (D)
-District 9
+[District 9](https://statisticalatlas.com/state-upper-legislative-district/California/District-9/Overview)
 (510) 286-1333
 
 ##################################################################
