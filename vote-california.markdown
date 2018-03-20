@@ -15,7 +15,7 @@ District 18
 
 **94619 State Senator**:
 
-Nancy Skinner (D)
+[Nancy Skinner](http://sd09.senate.ca.gov/) (D)
 District 9
 (510) 286-1333
 
