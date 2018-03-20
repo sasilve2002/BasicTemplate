@@ -7,7 +7,7 @@ date: 2018-02-05 14:43:00 -08:00
 
 ##################################################################
 
-94619 State **Assemblymember**:
+State **Assemblymember** (Oakland, Alameda, San Leandro):
 
 [Rob Bonta](https://a18.asmdc.org/) (D)
 [**District 18**](https://statisticalatlas.com/state-lower-legislative-district/California/District-18/Overview)
