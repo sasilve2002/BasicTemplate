@@ -10,7 +10,7 @@ date: 2018-02-05 14:43:00 -08:00
 **94619 State Assemblymember**:
 
 [Rob Bonta](https://a18.asmdc.org/) (D)
-District 18
+[District 18](https://statisticalatlas.com/state-lower-legislative-district/California/District-18/Overview)
 (510) 286-1670
 
 **94619 State Senator**:
