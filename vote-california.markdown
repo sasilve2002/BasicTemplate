@@ -4,8 +4,6 @@ date: 2018-02-05 14:43:00 -08:00
 ---
 
 [**Click here to register to vote.**](https://registertovote.ca.gov/)
-or
-**Get registered** @RegisterToVote.ca.gov #VoteCalifornia
 
 ##################################################################
 
