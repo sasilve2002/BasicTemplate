@@ -10,6 +10,8 @@ date: 2018-02-05 14:43:00 -08:00
 Click here for [**VoteSmart**](https://votesmart.org/) :
 "**Vote Smart**'s mission is to provide **free, factual, unbiased** information on candidates and elected officials to ALL Americans."
 
+##################################################################
+
 State **Assemblymember** (*Oakland*, *Alameda*, *San Leandro*):
 
 [Rob Bonta](https://a18.asmdc.org/) (D)
