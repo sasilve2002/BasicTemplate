@@ -3,7 +3,7 @@ title: Vote California
 date: 2018-02-05 14:43:00 -08:00
 ---
 
-[**Click here to register to vote.**](https://registertovote.ca.gov/)
+[**Click here to register to vote.**](https://registertovote.ca.gov/) 
 
 ##################################################################
 
