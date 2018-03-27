@@ -1,6 +1,7 @@
 ---
 title: 100% Health Coverage
 date: 2018-03-16 06:34:00 -07:00
+published: false
 ---
 
 Excerpted from [**care4allca.org**](http://care4allca.org/) :
