@@ -1,5 +1,5 @@
 ---
-title: Phone Banks & New Citizens
+title: New Citizen Voters
 date: 2018-02-02 14:33:00 -08:00
 ---
 
@@ -13,12 +13,6 @@ Helping brand new Americans activate their citizenship by registering to vote is
 
 Join us at 10 am or at 2 pm in front of the Paramount Theatre in Oakland. Look for a row of ironing boards on both sides of the entrance. No experience is necessary - we will train on site at 10 am and 2 pm.
 [**Click here to see the schedule and to sign up**.](https://demaction.us/)
-
-"  **New Citizens Swearing In Ceremonies**
-Please plan to **arrive on time** for either event so we can do a **training** and distribute the volunteers between the two stations. If you plan to drive, **allow 30-45 minutes to look for parking** which fills up very early. This is an **outdoor standing event** so please be prepared to stand for up to **2 hours** and dress according to the weather (casual is fine).
-[**The Paramount Theatre**](http://www.paramounttheatre.com/) is 1/2 block from the **19th St. BART** station. Please **RSVP** below:  "
-
-Thank You to those of you who join us regularly. This is one of the really joyous events we do.
 
 ##################################################################
 
