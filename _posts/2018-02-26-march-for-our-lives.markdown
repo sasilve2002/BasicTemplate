@@ -1,6 +1,7 @@
 ---
 title: March for Our Lives
 date: 2018-02-26 05:25:00 -08:00
+published: false
 ---
 
 Excerpted from [**MARCH FOR OUR LIVES**](https://www.marchforourlives.com/).
