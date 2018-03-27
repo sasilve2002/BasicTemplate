@@ -1,5 +1,5 @@
 ---
-title: Phone Banks to Voters
+title: Phone Banks to GOTV
 date: 2018-03-27 06:10:00 -07:00
 ---
 
