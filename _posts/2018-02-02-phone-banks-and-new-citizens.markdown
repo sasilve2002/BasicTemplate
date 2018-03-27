@@ -14,9 +14,4 @@ Helping brand new Americans activate their citizenship by registering to vote is
 Join us at 10 am or at 2 pm in front of the Paramount Theatre in Oakland. Look for a row of ironing boards on both sides of the entrance. No experience is necessary - we will train on site at 10 am and 2 pm.
 [**Click here to see the schedule and to sign up**.](https://demaction.us/)
 
-##################################################################
 
-**PHONE BANKS AROUND THE BAY**:
-"The [**Democracy Action**](https://demaction.us/) network now has **Phone Bank** listings for **San Francisco, East Bay, and Marin**, with more coming online soon. We are still making calls to **voters in other states** to ask them to call their Members of Congress about a **clean Dream Act vote**."
-
-[**Click here to FIND A PHONE BANK OR EVENT NEAR YOU**](https://demaction.us/).
