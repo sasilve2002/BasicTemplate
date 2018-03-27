@@ -1,5 +1,7 @@
 ---
-title: Phone Banks to GOTV
+title: |-
+  Phone Banks to GOTV
+  (Get Out The Vote)
 date: 2018-03-27 06:10:00 -07:00
 ---
 
