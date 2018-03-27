@@ -17,3 +17,9 @@ We will be calling **in support** of Democratic candidates or to **build capacit
 
 [**Oakland Adams Point**](https://www.eventbrite.com/e/east-bay-oaklandadams-point-phone-bank-tickets-43534424636?ref=wpevent) 
 [May 6, 2018](https://www.eventbrite.com/e/east-bay-oaklandadams-point-phone-bank-tickets-43534329351?ref=wpevent)
+
+May 13, 2018
+[Oakland Montclair](https://www.eventbrite.com/e/east-bay-oaklandmontclair-phone-bank-tickets-43534374486?ref=wpevent)
+REGISTER
+East Bay - Oakland/Montclair Phone Bank
+May 13, 2018 | Free
