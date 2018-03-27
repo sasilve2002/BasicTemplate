@@ -10,7 +10,7 @@ Our group has been making making calls to **flip** our political climate from re
 
 We will be calling **in support** of Democratic candidates or to **build capacity** in other districts.
 
-[Click here to sign up:](https://www.eventbrite.com/e/east-bay-oaklandmontclair-phone-bank-tickets-43534348408?ref=wpevent)
+*Click to sign up*:
+[**Oakland Montclair**](http://(https://www.eventbrite.com/e/east-bay-oaklandmontclair-phone-bank-tickets-43534348408?ref=wpevent))
 
-https://www.eventbrite.com/e/east-bay-oaklandadams-point-phone-bank-tickets-43534424636?ref=wpevent
-
+[**Oakland Adams Point**](https://www.eventbrite.com/e/east-bay-oaklandadams-point-phone-bank-tickets-43534424636?ref=wpevent) 
