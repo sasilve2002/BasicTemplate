@@ -12,7 +12,7 @@ date: 2018-03-27 06:10:00 -07:00
 
 *Click below to sign up*:
 
-**April 21, 2018** :
+**April 8, 2018** :
 [**Oakland Montclair**](https://www.eventbrite.com/e/east-bay-oaklandmontclair-phone-bank-tickets-43534348408?ref=wpevent)
 
 **May 6, 2018**
