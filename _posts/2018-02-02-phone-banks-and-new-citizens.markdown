@@ -9,7 +9,7 @@ Excerpted from [**Democracy Action**](https://demaction.us/) :
 
 "  [**Naturalization Ceremony in Oakland**](https://oaklandnorth.net/2017/10/02/thousands-become-us-citizens-in-oakland-and-react-strongly-to-trumps-welcome-message/):   "
 
-Helping brand new Americans activate their citizenship by registering to vote is one of the most fulfilling activities we can participate in. From countries all over the world, they pour out of the Paramount Theater after taking the oath of allegiance to their new homeland, where we welcome them with an offer to register to vote the same day.
+Helping brand new Americans activate their citizenship by registering to vote is one of the most fulfilling activities we can participate in. 
 
 Join us at 10 am or at 2 pm in front of the Paramount Theatre in Oakland. Look for a row of ironing boards on both sides of the entrance. No experience is necessary - we will train on site at 10 am and 2 pm.
 [**Click here to see the schedule and to sign up**.](https://demaction.us/)
