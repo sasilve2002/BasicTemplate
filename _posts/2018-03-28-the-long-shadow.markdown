@@ -24,6 +24,7 @@ From [**Resistance Action East Bay**](http://https://indivisible-raeb.org/)
 
 **At the door**: 
 3200 Grand Ave., Oakland on April 11
+
 **General Admission: $15; Students: $10**
 
 "**The Long Shadow** is a wonderful new **feature-length documentary** on the origins and legacy of **slavery**.
