@@ -9,7 +9,7 @@ From [**Resistance Action East Bay**](https://indivisible-raeb.org/)
 
 ***Where***:
  
-**Grand Lake Theater**, 
+**[Grand Lake Theater](http://www.renaissancerialto.com/)**, 
 3200 Grand Avenue, Oakland
 
 ***When***: 
