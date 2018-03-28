@@ -11,9 +11,10 @@ From [**Resistance Action East Bay**](http://https://indivisible-raeb.org/)
  
 **Grand Lake Theater**, 
 3200 Grand Avenue, Oakland
+
 ***When***: 
 
-Wednesday, 
+**Wednesday**, 
 **April 11, 2018**, at 
 **7:15 p.m.**
 
