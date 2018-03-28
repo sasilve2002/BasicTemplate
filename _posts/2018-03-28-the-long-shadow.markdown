@@ -19,9 +19,10 @@ General Admission: $15; Students: $10**
 
 "The Long Shadow is a wonderful new **feature-length documentary** on the origins and legacy of **slavery**.
 Filmmaker and investigative journalist **[Frances Causey](http://www.imdb.com/name/nm2809859/)**, a daughter of the South, set out to explore her personal family history of slaveholding. Her investigation traces slavery's history from America's founding up through its insidious ties to racism today. Following the film will be a Q and A with the filmmakers and a discussion of what we can do now to work for racial justice. See [**thelongshadowfilm.com**](http://thelongshadowfilm.com/) for more information and a trailer.
-Proceeds of this Fundraiser will support these important causes:
-To promote further distribution of this great film, including free showings to school children; and
-To raise funds for local People of Color-led racial justice organizations.
+
+**Proceeds of this Fundraiser will support these important causes:**
+To **promote further distribution** of this great film, including free showings to school children; and
+To **raise funds** for **local People of Color-led racial justice organizations**.
 
 Resistance Action East Bay (RAEB) is a local group promoting active citizenship and an
 Indivisible affiliate, and is hosting this fundraiser. Cosponsored by KPFA radio.
