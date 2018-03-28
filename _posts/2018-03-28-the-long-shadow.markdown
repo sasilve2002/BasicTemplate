@@ -24,7 +24,6 @@ Filmmaker and investigative journalist **[Frances Causey](http://www.imdb.com/na
 To **promote further distribution** of this great film, including free showings to school children; and
 To **raise funds** for **local People of Color-led racial justice organizations**.
 
-Resistance Action East Bay (RAEB) is a local group promoting active citizenship and an
-Indivisible affiliate, and is hosting this fundraiser. Cosponsored by KPFA radio.
+[**Resistance Action East Bay** (RAEB)](https://indivisible-raeb.org/) is a local group promoting active citizenship and an Indivisible affiliate, and is hosting this fundraiser. Cosponsored by KPFA radio.
 
 
