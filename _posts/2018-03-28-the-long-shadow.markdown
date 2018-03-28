@@ -20,7 +20,7 @@ From [**Resistance Action East Bay**](http://https://indivisible-raeb.org/)
 
 **Tickets Available Now**
 
-**In advance: Online at renaissancerialto.com**
+**In advance: [Online at renaissancerialto.com](http://renaissancerialto.com/)**
 
 **At the door**: 
 3200 Grand Ave., Oakland on April 11
