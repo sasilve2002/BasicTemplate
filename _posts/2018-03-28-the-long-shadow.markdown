@@ -5,7 +5,7 @@ date: 2018-03-28 06:04:00 -07:00
 
 From [**Resistance Action East Bay**](https://indivisible-raeb.org/)
 
-"I am writing you from [**Indivisible Resistance Action East Bay**](https://indivisible-raeb.org/). We are co-hosting a **benefit** showing of ***The Long Shadow***, an important new **social justice movie**."
+"I am writing you from [**Indivisible Resistance Action East Bay**](https://indivisible-raeb.org/). We are co-hosting a **benefit** showing of ***[The Long Shadow](http://thelongshadowfilm.com/)***, an important new **social justice movie**."
 
 ***Where***:
  
