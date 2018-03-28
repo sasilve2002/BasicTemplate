@@ -7,10 +7,15 @@ From [**Resistance Action East Bay**](http://https://indivisible-raeb.org/)
 
 "I am writing you from [Indivisible Resistance Action East Bay](http://https://indivisible-raeb.org/). We are co-hosting a **benefit** showing of ***The Long Shadow***, an important new **social justice movie**."
 
-***Where***: 
-**Grand Lake Theater**, 3200 Grand Avenue, Oakland
+***Where***:
+ 
+**Grand Lake Theater**, 
+3200 Grand Avenue, Oakland
 ***When***: 
-Wednesday, **April 11, 2018**, at 7:15 p.m.
+
+Wednesday, 
+**April 11, 2018**, at 
+**7:15 p.m.**
 
 **Tickets Available Now
 In advance: Online at renaissancerialto.com
