@@ -25,7 +25,7 @@ From [**Resistance Action East Bay**](http://https://indivisible-raeb.org/)
 3200 Grand Ave., Oakland on April 11
 **General Admission: $15; Students: $10**
 
-"The Long Shadow is a wonderful new **feature-length documentary** on the origins and legacy of **slavery**.
+"**The Long Shadow** is a wonderful new **feature-length documentary** on the origins and legacy of **slavery**.
 Filmmaker and investigative journalist **[Frances Causey](http://www.imdb.com/name/nm2809859/)**, a daughter of the South, set out to explore her personal family history of slaveholding. Her investigation traces slavery's history from America's founding up through its insidious ties to racism today. Following the film will be a Q and A with the filmmakers and a discussion of what we can do now to work for racial justice. See [**thelongshadowfilm.com**](http://thelongshadowfilm.com/) for more information and a trailer.
 
 **Proceeds of this Fundraiser will support these important causes:**
