@@ -5,6 +5,8 @@ date: 2018-03-21 14:49:00 -07:00
 
 [**Click here to register to vote.**](https://registertovote.ca.gov/) 
 
+##################################################################
+
 [**Click here** for the California **Guide to Register Voters** ](http://elections.cdn.sos.ca.gov/guides/guide-to-vr-drives.pdf)
 
 ##################################################################
