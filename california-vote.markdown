@@ -9,6 +9,8 @@ date: 2018-03-21 14:49:00 -07:00
 
 [**Click here** for the California **Guide to Register Voters** ](http://elections.cdn.sos.ca.gov/guides/guide-to-vr-drives.pdf)
 
+[Click here for the 2018 Oakland Municipal Election Easy Voter Guide](http://http://www.lwvoakland.org/files/EVG_2016_for_Web_English_.pdf) 
+
 ##################################################################
 
 Click here for [**VoteSmart**](https://votesmart.org/) :
