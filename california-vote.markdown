@@ -5,8 +5,6 @@ date: 2018-03-21 14:49:00 -07:00
 
 [**Click here to register to vote.**](https://registertovote.ca.gov/) 
 
-Click here for Voters Edge : [<iframe src='https://votersedge.org/en/ca/address-widget' frameBorder='0' scrolling='no' style='width:240px;height:239px;'></iframe>
-](<iframe src='https://votersedge.org/en/ca/address-widget' frameBorder='0' scrolling='no' style='width:240px;height:239px;'></iframe>)
 ##################################################################
 
 Click here for [**VoteSmart**](https://votesmart.org/) :
