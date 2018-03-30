@@ -42,6 +42,15 @@ State **Assemblymember** (*Oakland*, *Alameda*, *San Leandro*):
 
 [**Click here for the Official Election Site of Alameda County**](https://www.acvote.org/index).
 
+Alameda (01)
+Tim Dupuis, Registrar of Voters
+1225 Fallon Street, Room G-1
+Oakland, CA 94612
+(510) 272-6933
+(510) 272-6982 Fax
+Hours: 8:30 a.m. - 5:00 p.m.
+Website: www.acgov.org/rov/index.htm
+
 ##################################################################
 Excerpted from [**California Clean Money Campaign**](http://www.cacleanaction.org/) : 
 
