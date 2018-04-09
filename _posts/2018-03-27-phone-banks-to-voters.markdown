@@ -10,7 +10,7 @@ date: 2018-03-27 06:10:00 -07:00
 
 "Our group has been making making calls to **flip** our political climate from red to blue in 2018.  We will be calling **in support** of Democratic candidates or to **build capacity** in other districts."
 
-*Click below to sign up*:
+*Click below to sign up* and [click here for the full schedule](https://demaction.us/):
 
 **April 11, 2018**
 **[East Bay-Albany/Berkeley](PDThttps://www.eventbrite.com/e/east-bay-albanyberkeley-flip-red-ca-districts-to-blue-phone-bank-post-card-party-tickets-44565323081?ref=wpevent)** 
