@@ -7,7 +7,7 @@ From the [**Indivisible Guide**](https://www.facebook.com/indivisibleguide/?hc_r
 
 "*Any politician who doesn't respect our vote, doesn't get our vote*." 
 
-Check out this **[great video](https://www.facebook.com/indivisibleguide/videos/1919213654757888/UzpfSTcwNzY0NjAxMjczOTcyMTo5NzI0MDM4OTI5MzA1OTc/)** on voting from one of our Indivisible Project board members, Heather McGhee from @Demos, and made in partnership with Robert Reich!
+Check out this **[great video](https://www.facebook.com/indivisibleguide/videos/1919213654757888/UzpfSTcwNzY0NjAxMjczOTcyMTo5NzI0MDM4OTI5MzA1OTc/)** on voting from one of our Indivisible Project board members, Heather McGhee from @Demos, and made in partnership with [Robert Reich](https://en.wikipedia.org/wiki/Robert_Reich)!
 
 [Click here for the video](https://www.facebook.com/indivisibleguide/videos/1919213654757888/UzpfSTcwNzY0NjAxMjczOTcyMTo5NzI0MDM4OTI5MzA1OTc/)
 
