@@ -10,7 +10,7 @@ The **"Teen Voter" group** is meeting to prep for our visit to [**Madison Park A
 April 9, 2018, 
 7:00 - 8:00 pm**
 
-*For the meeting address, please email **sasilve2002@gmail**.com or call **510-816-3303**.*
+*For the meeting address, please email **sasilve2002@gmail.com** or call **510-816-3303**.*
 
 Excerpted from [**Secretary of State Alex Padella**](http://www.sos.ca.gov/administration/news-releases-and-advisories/2017-news-releases-and-advisories/16-and-17-year-olds-can-now-pre-register-vote-online/) :
 
