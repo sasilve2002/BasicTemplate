@@ -15,8 +15,6 @@ date: 2018-03-27 06:10:00 -07:00
 **April 11, 2018**
 **[East Bay-Albany/Berkeley](PDThttps://www.eventbrite.com/e/east-bay-albanyberkeley-flip-red-ca-districts-to-blue-phone-bank-post-card-party-tickets-44565323081?ref=wpevent)** 
 
-
-
 **April 21, 2018** 
 [**Oakland Montclair**](https://www.eventbrite.com/e/east-bay-oaklandadams-point-phone-bank-tickets-43534424636?ref=wpevent)
 
