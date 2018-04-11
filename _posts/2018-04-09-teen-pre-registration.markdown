@@ -4,7 +4,7 @@ date: 2018-04-09 06:59:00 -07:00
 ---
 
 We are helping to **pre-register 16- & 17-year olds** to vote.  
-The **"Teen Voter" group** is visiting [**Madison Park Academy**](https://www.ousd.org/madison) on Thursday, April 12, and Friday, April 13, 2018, where we will pre-register teens during their lunch hour.
+Our **"Teen Voter" group** is visiting [**Madison Park Academy**](https://www.ousd.org/madison) on Thursday, April 12, and Friday, April 13, 2018, where we will pre-register teens during their lunch hour.
 
 If you would like to **help, with this event or upcoming efforts**, please email **sasilve2002@gmailcom**. 
 
