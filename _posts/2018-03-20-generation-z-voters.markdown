@@ -7,7 +7,9 @@ Excerpted from [**18by18.vote**](https://www.18by18.vote/) :
 
 "If you’ll be **18 by November 6th 2018**, you can **vote**. Make your voice heard – shape the future of your country."  [**Click here for more information**](https://www.18by18.vote/).
 
-[Shanthi Gonzales - District 6 School Board Director](http://gonzalesforschools.nationbuilder.com/) 
+##################################################################
+
+[**Shanthi Gonzales** - **District 6** School Board Director](http://gonzalesforschools.nationbuilder.com/) 
 
 ##################################################################
 
