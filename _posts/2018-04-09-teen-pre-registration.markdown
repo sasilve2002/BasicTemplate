@@ -8,7 +8,7 @@ Our **"Teen Voter" group** is visiting [**Madison Park Academy**](https://www.ou
 
 If you would like to **help, with this event or upcoming efforts**, please email **sasilve2002@gmailcom**. 
 
-[**Click here for more information**](http://www.sos.ca.gov/elections/voter-registration/) from the California Secretary of State.
+[**Click here for more information**](http://www.sos.ca.gov/elections/voter-registration/) from the California **Secretary of State**.
 
 Excerpted from [**Secretary of State Alex Padella**](http://www.sos.ca.gov/administration/news-releases-and-advisories/2017-news-releases-and-advisories/16-and-17-year-olds-can-now-pre-register-vote-online/) :
 
