@@ -11,3 +11,5 @@ If you would like to **help, with this event or upcoming efforts**, please email
 Excerpted from [**Secretary of State Alex Padella**](http://www.sos.ca.gov/administration/news-releases-and-advisories/2017-news-releases-and-advisories/16-and-17-year-olds-can-now-pre-register-vote-online/) :
 
 “California’s **16- and 17-year-olds** can now **pre-register to vote online** at [**registertovote.ca.gov**](http://registertovote.ca.gov/),” said Secretary Padilla. “**Online pre-registration** will help more young people vote as **soon as they are eligible**. Whether they’re **at school** or **at home** or **hanging out with friends**, young Californians can pre-register to vote in just minutes in their **smartphone, tablet or laptop**.” 
+
+If you would like to **help, with this event or upcoming efforts**, please email **sasilve2002@gmailcom**. 
