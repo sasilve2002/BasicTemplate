@@ -4,13 +4,9 @@ date: 2018-04-09 06:59:00 -07:00
 ---
 
 We are helping to **pre-register 16- & 17-year olds** to vote.  
-The **"Teen Voter" group** is meeting to prep for our visit to [**Madison Park Academy**](https://www.ousd.org/madison)
- 
-**Monday,
-April 9, 2018, 
-7:00 - 8:00 pm**
+The **"Teen Voter" group** is visiting [**Madison Park Academy**](https://www.ousd.org/madison) on Thursday, April 12, and Friday, April 13, 2018, where we will pre-register teens during their lunch hour.
 
-*For the meeting address, please email **sasilve2002@gmail.com** or call **510-816-3303**.*
+If you would like to **help, with this event or upcoming efforts**, please email **sasilve2002@gmailcom**. 
 
 Excerpted from [**Secretary of State Alex Padella**](http://www.sos.ca.gov/administration/news-releases-and-advisories/2017-news-releases-and-advisories/16-and-17-year-olds-can-now-pre-register-vote-online/) :
 
