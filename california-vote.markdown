@@ -93,7 +93,8 @@ Excerpted from [**Rock the Vote**](https://www.rockthevote.org/):
 
 ##################################################################
 
-[**Click here**](https://lwvc.org/) for the **League of Women Voters California**. 
+[Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
+
  
 ....................................................................................................................................
 
