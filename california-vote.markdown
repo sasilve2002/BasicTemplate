@@ -7,6 +7,10 @@ date: 2018-03-21 14:49:00 -07:00
 
 ##################################################################
 
+[Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
+
+##################################################################
+
 [**Click here** for the California **Guide to Register Voters** ](http://elections.cdn.sos.ca.gov/guides/guide-to-vr-drives.pdf)
 
 ##################################################################
@@ -92,11 +96,6 @@ Excerpted from [**Rock the Vote**](https://www.rockthevote.org/):
 <a href="http://www.sos.ca.gov/elections/voting-resources/voting-california/"><img class="imgBorderNone" src="http://elections.cdn.sos.ca.gov//images/vote-ca.jpg" alt="Secretary of State - Voting In California" /></a>
 
 ##################################################################
-
-[Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
-
- 
-....................................................................................................................................
 
 From **[Voters Edge](https://votersedge.org/en/ca)** : 
 
