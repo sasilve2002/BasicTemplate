@@ -24,6 +24,7 @@ From [**Ballotpedia.org**](https://ballotpedia.org/Main_Page):
 
 Click here for **Municipal Elections in Oakland, CA 2018**.
 https://ballotpedia.org/Municipal_elections_in_Alameda_County,_California_(2018)
+
 ##################################################################
 
 Click here for [**VoteSmart**](https://votesmart.org/) :
