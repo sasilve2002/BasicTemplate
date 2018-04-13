@@ -11,6 +11,12 @@ date: 2018-03-21 14:49:00 -07:00
 
 ##################################################################
 
+[Click here for Indivisible Guide's **Turbo Vote**](https://indivisible.turbovote.org/)
+
+"Click ***Get Started***, and follow the steps to get **registered** or apply for an **absentee ballot**. By using this tool, you'll be added to Indivisible Project's national email list. We won't send you a ton of email, but we'll make sure you get **local election updates**."
+
+##################################################################
+
 [**Click here** for the California **Guide to Register Voters** ](http://elections.cdn.sos.ca.gov/guides/guide-to-vr-drives.pdf)
 
 ##################################################################
