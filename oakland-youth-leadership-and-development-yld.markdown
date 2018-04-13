@@ -3,7 +3,7 @@ title: Oakland Youth Leadership and Development (YLD)
 date: 2018-04-13 16:36:00 -07:00
 ---
 
-Oakland Youth Leadership and Development (YLD)
+**Oakland Youth Leadership and Development** (YLD)
 "YLD's flagship program, the Oakland Youth Advisory Commission (OYAC), empowers Oakland youth with leadership training and civic engagement opportunities.
 
 Youth Leadership & Development
