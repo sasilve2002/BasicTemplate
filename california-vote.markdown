@@ -86,7 +86,7 @@ Excerpted from [**Ballotpedia**](https://ballotpedia.org/Main_Page) :
  
 ##################################################################
 
-**Click here** for the [**California Easy Voter Guide**](http://www.easyvoterguide.org/).
+**Click here** for the League of Women Voters [**California Easy Voter Guide**](http://www.easyvoterguide.org/).
 
 "*The **aim** of the Easy Voter Guide project is to make **nonpartisan information** about **why** vote, **how** to vote and **what’s on the ballot** accessible to as many Californians as possible. Founded in 1994, the **Easy Voter Guide project** is a collaboration of the [**League of Women Voters of California Education Fund**](https://cavotes.org/), the [**California State Library**](http://www.library.ca.gov/) and the [**Common Knowledge Group**](http://ckgroup.org/)*."
 
