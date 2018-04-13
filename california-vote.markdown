@@ -20,9 +20,10 @@ date: 2018-03-21 14:49:00 -07:00
 [**Click here** for the California **Guide to Register Voters** ](http://elections.cdn.sos.ca.gov/guides/guide-to-vr-drives.pdf)
 
 ##################################################################
+From [**Ballotpedia.org**](https://ballotpedia.org/Main_Page):
 
-[**Click here** for the 2018 **Oakland** Municipal Election **Easy Voter Guide**](http://http://www.lwvoakland.org/files/EVG_2016_for_Web_English_.pdf) 
-
+Click here for **Municipal Elections in Oakland, CA 2018**.
+https://ballotpedia.org/Municipal_elections_in_Alameda_County,_California_(2018)
 ##################################################################
 
 Click here for [**VoteSmart**](https://votesmart.org/) :
