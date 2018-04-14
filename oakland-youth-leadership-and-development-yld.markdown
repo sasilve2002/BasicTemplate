@@ -20,14 +20,15 @@ Email: youthcommission@oaklandnet.com
 [**Click here for more information**.](http://www2.oaklandnet.com/government/o/DHS/s/YouthYoungAdults/OAK022075)
 
 ##################################################################
-Oakland Public Library
-Youth Leadership Council
 
-"The YOUTH LEADERSHIP COUNCIL is a youth-driven advisory board for Oakland Public Library."
+[**Oakland Public Library**
+**Youth Leadership Council**]((https://www.oaklandlibrary.org/teens/get-involved/youth-leadership-council))
 
-[Click here for their flyer.](http://oaklandlibrary.org/sites/default/files/uploads/YLC_NewFlyer2015.pdf)
+"The **YOUTH LEADERSHIP COUNCIL** is a youth-driven advisory board for Oakland Public Library."
 
-[Click here for more information.](https://www.oaklandlibrary.org/teens/get-involved/youth-leadership-council)
+[**Click here for their flyer**.](http://oaklandlibrary.org/sites/default/files/uploads/YLC_NewFlyer2015.pdf)
+
+[**Click here for more information**.](https://www.oaklandlibrary.org/teens/get-involved/youth-leadership-council)
 
 
 
