@@ -36,7 +36,7 @@ Email: youthcommission@oaklandnet.com
 
 "All children and youth in Oakland will thrive and have the support of the entire community to lead safe, healthy and productive lives."
 
-[Click here for more information.](http://www.ofcy.org/)
+[**Click here for more information**.](http://www.ofcy.org/)
 
 
 
