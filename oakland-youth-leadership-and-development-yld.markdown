@@ -30,5 +30,11 @@ Email: youthcommission@oaklandnet.com
 
 [**Click here for more information**.](https://www.oaklandlibrary.org/teens/get-involved/youth-leadership-council)
 
+##################################################################
+
+[**Oakland Fund for Children & Youth**](http://www.ofcy.org/)
+
+
+
 
 
