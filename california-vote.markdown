@@ -13,7 +13,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 [**Click here** for the California Secretary of State's "**California Students**" page](http://www.sos.ca.gov/elections/castudentsvote/)
 
-**[Click here](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** for the Public Policy Institute of California "**[California's Missing Voters](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** .
+**[Click here](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** for the Public Policy Institute of California "[**California's Missing Voters**](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)" .
 
 From [**EdSource.org**](https://edsource.org/) :
 
