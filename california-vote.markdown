@@ -15,6 +15,8 @@ date: 2018-03-21 14:49:00 -07:00
 
 **[Click here](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** for the Public Policy Institute of California "**[California's Missing Voters](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** .
 
+From [**EdSource.org**](https://edsource.org/) :
+
 ##################################################################
 
 [Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
