@@ -11,6 +11,8 @@ date: 2018-03-21 14:49:00 -07:00
 
 [Click here for the California Secretary of State's "California Students Vote](http://www.sos.ca.gov/elections/castudentsvote/)" page.
 
+[Click here for the Public Policy Institute of California's report on "California's Missing Voters](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)."
+
 ##################################################################
 
 [Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
