@@ -84,19 +84,6 @@ Excerpted from [**California Clean Money Campaign**](http://www.cacleanaction.or
 
 ##################################################################
 
-From [**Ballotpedia**](https://ballotpedia.org/Main_Page):
-
-[**Click here for Alameda County 2018 Municipal Elections**](https://ballotpedia.org/Municipal_elections_in_Alameda_County,_California_(2018)).
-
-Excerpted from [**Ballotpedia**](https://ballotpedia.org/Main_Page) :
-
-"[**Ballotpedia**](https://ballotpedia.org/Main_Page) is the **online encyclopedia** of American **politics and elections**. Our goal is to inform people about politics by providing **accurate and objective information** about politics at all levels of government."
-
-[**Click here** for Ballotpedia's **election** page.](https://ballotpedia.org/Elections)
-
- 
-##################################################################
-
 **Click here** for the League of Women Voters [**California Easy Voter Guide**](http://www.easyvoterguide.org/).
 
 "*The **aim** of the Easy Voter Guide project is to make **nonpartisan information** about **why** vote, **how** to vote and **what’s on the ballot** accessible to as many Californians as possible. Founded in 1994, the **Easy Voter Guide project** is a collaboration of the [**League of Women Voters of California Education Fund**](https://cavotes.org/), the [**California State Library**](http://www.library.ca.gov/) and the [**Common Knowledge Group**](http://ckgroup.org/)*."
