@@ -9,6 +9,8 @@ date: 2018-03-21 14:49:00 -07:00
 
 [**Click here** for the California Secretary of State's "**High School and Youth Initiatives**](http://www.sos.ca.gov/elections/high-school-programs/)."
 
+[Click here for the California Secretary of State's "California Students Vote](http://www.sos.ca.gov/elections/castudentsvote/)" page.
+
 ##################################################################
 
 [Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
