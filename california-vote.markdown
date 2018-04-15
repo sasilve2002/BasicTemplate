@@ -11,7 +11,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 [**Click here** for the California Secretary of State's " **High School and Youth Initiatives**](http://www.sos.ca.gov/elections/high-school-programs/)."
 
-[Click here for the California Secretary of State's "California Students" page](http://www.sos.ca.gov/elections/castudentsvote/)
+[**Click here** for the California Secretary of State's "**California Students**" page](http://www.sos.ca.gov/elections/castudentsvote/)
 
 **[Click here** for the [Public Policy Institute of California](http://w(http://www.ppic.org/content/pubs/report/r_0617emr.pdf)" .
 
