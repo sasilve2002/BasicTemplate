@@ -17,6 +17,9 @@ date: 2018-03-21 14:49:00 -07:00
 
 From [**EdSource.org**](https://edsource.org/) :
 
+"[California Teenagers are Pre-Registering to Voter After March Gun Violence Protests](https://edsource.org/2018/more-california-teenagers-are-pre-registering-to-vote-after-march-gun-violence-protests/595815?utm_source=newsletter&utm_medium=email)."
+
+
 ##################################################################
 
 [Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
