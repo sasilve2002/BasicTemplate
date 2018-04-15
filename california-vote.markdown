@@ -15,10 +15,6 @@ date: 2018-03-21 14:49:00 -07:00
 
 **[Click here](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** for the Public Policy Institute of California "**[California's Missing Voters](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** .
 
-[**Education Votes California**](http://educationvotes.nea.org/topics/states/california/) : 
-
-"[**Speak Up For Education and Kids**](http://educationvotes.nea.org/speakup/) is a community started by the [**National Education Association**](http://www.nea.org/). It consists of educators and concerned citizens who believe our nation has a responsibility to invest in education for all students."
-
 ##################################################################
 
 [Click here for the **League of Women Voters of Oakland's "Voter's Toolbox**."](http://lwvoakland.org/elections.html)
