@@ -6,6 +6,7 @@ date: 2018-03-21 14:49:00 -07:00
 [**Click here to register to vote.**](https://registertovote.ca.gov/) 
 
 ##################################################################
+
 ***Youth Voters***:
 
 [**Click here** for the California Secretary of State's "**High School and Youth Initiatives**](http://www.sos.ca.gov/elections/high-school-programs/)."
