@@ -15,7 +15,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 **[Click here](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** for the Public Policy Institute of California "[**California's Missing Voters**](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)" .
 
-From [**EdSource.org**](https://edsource.org/) :
+From [**EdSource.org**](https://edsource.org/) April 2018 report:
 
 "[California Teenagers are Pre-Registering to Voter After March Gun Violence Protests](https://edsource.org/2018/more-california-teenagers-are-pre-registering-to-vote-after-march-gun-violence-protests/595815?utm_source=newsletter&utm_medium=email)."
 
