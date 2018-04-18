@@ -11,7 +11,7 @@ Registration becomes active on their 18th birthday**](http://www.sos.ca.gov/admi
 We are helping to **pre-register 16- & 17-year olds** to vote.  
 Our **"Teen Voter" group** is visiting various schools in Oakland either during a class period or during the lunch break.
 
-If you would like to **help, please email **sasilve2002@gmailcom**. 
+If you would like to help, please email **sasilve2002@gmailcom**. 
 
 [**Click here for more information**](http://www.sos.ca.gov/elections/voter-registration/) from the California **Secretary of State**.
 
