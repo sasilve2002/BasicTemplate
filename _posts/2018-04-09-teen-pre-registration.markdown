@@ -8,8 +8,7 @@ Excerpted from the [**Secretary of State**](http://www.sos.ca.gov/administration
 "[**16- and 17-Year-Olds Can Now Pre-Register to Vote Online
 Registration becomes active on their 18th birthday**](http://www.sos.ca.gov/administration/news-releases-and-advisories/2017-news-releases-and-advisories/16-and-17-year-olds-can-now-pre-register-vote-online/)" 
 
-We are helping to **pre-register 16- & 17-year olds** to vote.  
-Our **"Teen Voter" group** is visiting various schools in Oakland either during a class period or during the lunch break.
+We are helping to **pre-register 16- & 17-year olds** to vote. Our **"Teen Voter" group** is visiting various schools in Oakland either during a class period or during their lunch break.
 
 If you would like to help, please email **sasilve2002@gmailcom**. 
 
