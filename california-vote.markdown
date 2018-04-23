@@ -9,6 +9,11 @@ date: 2018-03-21 14:49:00 -07:00
 From [**NonprofitVOTE**](https://www.nonprofitvote.org/):
 
 [Click here to "Use the links on the right to find official voting information directly from California's elections website](https://www.nonprofitvote.org/states/california/)."
+
+**[Highlights from "America Goes to the Polls"](https://www.nonprofitvote.org/america-goes-to-the-polls-2016/):**
+"National turnout of eligible voters was 60.2% - Four in 10 eligible voters did not vote.
+The highest turnout states were Minnesota (74.8%), Maine (72.8%), New Hampshire (72.5%), Colorado (72.1%), Wisconsin (70.5%), and Iowa (69.0%). All six offered same day voter registration, enabling voters to register or update their registration when they vote. Five were battleground states targeted by the campaigns.
+The lowest turnout states were Hawaii (43%), West Virginia (50.8%), Texas (51.6%), Tennessee (52.0%) and Arkansas (53.1%). These five states were at the bottom for the third consecutive presidential election. None were battleground states. All five cut off the ability to register or update a registration three to four weeks before Election Day.
  
 ##################################################################
 
