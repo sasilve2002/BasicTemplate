@@ -3,7 +3,12 @@ title: California Vote!
 date: 2018-03-21 14:49:00 -07:00
 ---
 
-[**Click here to register to vote.**](https://registertovote.ca.gov/) 
+[**Click here to register to vote.**](https://registertovote.ca.gov/)
+
+##################################################################
+From [NonprofitVOTE](https://www.nonprofitvote.org/):
+[Click here to "Use the links on the right to find official voting information directly from California's elections website](https://www.nonprofitvote.org/states/california/)."
+ 
 
 ##################################################################
 
