@@ -8,7 +8,7 @@ date: 2018-03-21 14:49:00 -07:00
 ##################################################################
 From [**NonprofitVOTE**](https://www.nonprofitvote.org/):
 
-[Click here to "Use the links on the right to find official voting information directly from California's elections website](https://www.nonprofitvote.org/states/california/)."
+[**Click here** to "Use the links on the right to find official voting information directly from **California's elections website**](https://www.nonprofitvote.org/states/california/)."
 
 **[Highlights from "America Goes to the Polls"](https://www.nonprofitvote.org/america-goes-to-the-polls-2016/):**
 "National turnout of eligible voters was 60.2% - Four in 10 eligible voters did not vote.
