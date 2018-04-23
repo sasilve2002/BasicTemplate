@@ -10,7 +10,6 @@ From [**NonprofitVOTE**](https://www.nonprofitvote.org/):
 
 [Click here to "Use the links on the right to find official voting information directly from California's elections website](https://www.nonprofitvote.org/states/california/)."
  
-
 ##################################################################
 
 ***Youth Voters***:
