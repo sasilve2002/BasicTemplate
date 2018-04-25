@@ -21,8 +21,7 @@ The **lowest turnout** states were Hawaii (43%), West Virginia (50.8%), Texas (5
 
 ***Youth Voters***:
 
-[**Click here for a "High School Voter Registration Toolkit"** developed by a student at a high school in LA. ](https://drive.google.com/file/d/1QGWB_TNaRjr5FLBgmyjbgsVcFK4mX41Z/view)
-    
+[**Click here for a "High School Voter Registration Toolkit"** developed by a student at a high school in LA. ](https://drive.google.com/file/d/1QGWB_TNaRjr5FLBgmyjbgsVcFK4mX41Z/view)   
 
 [**Click here** for the California Secretary of State's " **High School and Youth Initiatives**](http://www.sos.ca.gov/elections/high-school-programs/)."
 
