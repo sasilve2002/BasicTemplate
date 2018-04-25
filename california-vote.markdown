@@ -27,9 +27,14 @@ The **lowest turnout** states were Hawaii (43%), West Virginia (50.8%), Texas (5
 
 **[Click here](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)** for the Public Policy Institute of California "[**California's Missing Voters**](http://www.ppic.org/content/pubs/report/r_0617emr.pdf)" .
 
-From [**EdSource.org**](https://edsource.org/) April 2018 report:
+Click here for [**EdSource.org**](https://edsource.org/) April 2018 reports:
 
 "[California Teenagers are Pre-Registering to Voter After March Gun Violence Protests](https://edsource.org/2018/more-california-teenagers-are-pre-registering-to-vote-after-march-gun-violence-protests/595815?utm_source=newsletter&utm_medium=email)."
+
+and :
+["Will 2018 be the Year of the Young Voter in California?"](https://edsource.org/2018/will-2018-be-the-year-of-the-young-voter-in-california/596402)
+
+
 
 
 ##################################################################
