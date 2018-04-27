@@ -3,8 +3,6 @@ title: Sonnet to Oil Companies that Use Fracking
 date: 2018-04-27 16:13:00 -07:00
 ---
 
-***Sonnet to Oil Companies that Use Fracking***:
-
 **HOW  DARE  YOU?**
 
 How dare you desecrate our Mother Earth,
