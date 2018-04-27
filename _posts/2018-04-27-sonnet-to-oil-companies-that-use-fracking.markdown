@@ -5,7 +5,7 @@ date: 2018-04-27 16:13:00 -07:00
 
 **HOW  DARE  YOU?**
 
-How dare you desecrate our Mother Earth,
+* How dare you desecrate our Mother Earth,
 Our peerless azure marble poised in space?
 If you could see and value her true worth,
 You’d not allow these frackers to deface.
