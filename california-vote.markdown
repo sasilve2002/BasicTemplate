@@ -83,7 +83,7 @@ State **Assemblymember** (*Oakland*, *Alameda*, *San Leandro*):
 
 *The [**13th district**](https://www.govtrack.us/congress/members/CA/13) consists of the **northern portion of Alameda County**. Cities in the district include **Alameda**, **Albany**, **Berkeley**, **Emeryville**, **Oakland**, **Piedmont**, and **San Leandro***
 
-[**Click here** to search for **your current districts**, and to see how they may have changed as a result of redistricting.](http://www.acgov.org/ms/addresslookup/Default.aspxAlameda County Districts: Old & New Look Up) 
+[**Click here** to search for **your current districts**, and to see how they may have changed as a result of redistricting.](http://www.acgov.org/ms/addresslookup/) 
 
 ##################################################################
 
