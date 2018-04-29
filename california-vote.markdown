@@ -23,7 +23,7 @@ The **lowest turnout** states were Hawaii (43%), West Virginia (50.8%), Texas (5
 
 [Click here for **Cap, Gown, Vote!**](https://capgownvote.org/about)
  
-In **Spring 2018**, **Let America Vote is launching Cap, Gown, Vote!** in cities across the country in partnership with Mayors. Cap, Gown, Vote! is an initiative aimed at increasing voter registration among high school students.
+"In **Spring 2018**, **Let America Vote is launching Cap, Gown, Vote!** in cities across the country in partnership with Mayors. Cap, Gown, Vote! is an initiative aimed at increasing voter registration among high school students."
 
 
 
