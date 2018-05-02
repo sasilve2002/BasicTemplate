@@ -53,7 +53,7 @@ Indivisible's "[**What if Everyone Voted**](https://www.facebook.com/indivisible
 
 [**Youth Communication's "Why Should We Vote?"**](https://www.youtube.com/watch?v=qIB60Odm1t0)
 
-[CNN's "Future voters intense debate on race and guns"](https://www.youtube.com/watch?v=vXBZELU4zGs)
+[**CNN's "Future voters intense debate on race and guns"**](https://www.youtube.com/watch?v=vXBZELU4zGs)
 
 
 ##################################################################
