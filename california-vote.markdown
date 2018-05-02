@@ -49,7 +49,7 @@ Indivisible's "[**What if Everyone Voted**](https://www.facebook.com/indivisible
   
 [**Tom Steyer**](https://secondnexus.com/news/tom-steyer-teenagers-voter-registration/) 
 
-[Rock the Vote's "Voting is the Party](https://www.youtube.com/watch?v=DMKBdKrkDLU&list=PLj2bfzz-LnC1BU0ekko-05BZt2X8SMYnl)" 
+[**Rock the Vote's "Voting is the Party**](https://www.youtube.com/watch?v=DMKBdKrkDLU&list=PLj2bfzz-LnC1BU0ekko-05BZt2X8SMYnl)" 
 
 
 
