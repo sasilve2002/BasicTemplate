@@ -40,6 +40,9 @@ Click here for [**EdSource.org**](https://edsource.org/) April 2018 reports:
 and :
 ["Will **2018** be the **Year of the Young Voter** in California?"](https://edsource.org/2018/will-2018-be-the-year-of-the-young-voter-in-california/596402)
 
+[Click here for **poll workers** information](http://www.sos.ca.gov/elections/poll-worker-information/).
+
+
 
 
 
