@@ -42,6 +42,8 @@ and :
 
 [Click here for **poll workers** information](http://www.sos.ca.gov/elections/poll-worker-information/).
 
+[Click here for **Indivisible East Bay's High School Voter Registration Initiative**](https://docs.google.com/document/d/1D2kZatoRjeeX7-BBCLAKHAXXfWgnBnTt0FNV1AyoQts/edit)
+
 
 
 
