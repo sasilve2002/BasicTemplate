@@ -51,6 +51,7 @@ Indivisible's "[**What if Everyone Voted**](https://www.facebook.com/indivisible
 
 [**Rock the Vote's "Voting is the Party**](https://www.youtube.com/watch?v=DMKBdKrkDLU&list=PLj2bfzz-LnC1BU0ekko-05BZt2X8SMYnl)" 
 
+[**Youth Communication's "Why Should We Vote?"**](https://www.youtube.com/watch?v=qIB60Odm1t0)
 
 
 ##################################################################
