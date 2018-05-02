@@ -47,7 +47,7 @@ Click here for [**EdSource.org**](https://edsource.org/) April 2018 reports:
 
 Indivisible's "[**What if Everyone Voted**](https://www.facebook.com/indivisibleguide/videos/1919213654757888/UzpfSTcwNzY0NjAxMjczOTcyMTo5NzI0MDM4OTI5MzA1OTc/)?" 
   
-[**Tom Steyer**](https://secondnexus.com/news/tom-steyer-teenagers-voter-registration/) 
+[**Tom Steyer's "Tom Steyer Pledges $1 Million to Register Teenagers to Vote in 2018"**](https://secondnexus.com/news/tom-steyer-teenagers-voter-registration/) 
 
 [**Rock the Vote's "Voting is the Party**](https://www.youtube.com/watch?v=DMKBdKrkDLU&list=PLj2bfzz-LnC1BU0ekko-05BZt2X8SMYnl)" 
 
