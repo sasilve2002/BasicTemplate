@@ -43,6 +43,8 @@ Click here for [**EdSource.org**](https://edsource.org/) April 2018 reports:
 
 [Click here for **Indivisible East Bay's High School Voter Registration Initiative**](https://docs.google.com/document/d/1D2kZatoRjeeX7-BBCLAKHAXXfWgnBnTt0FNV1AyoQts/edit)
 
+**Videos**:  
+[**Tom Steyer**](https://secondnexus.com/news/tom-steyer-teenagers-voter-registration/)  
 
 
 
