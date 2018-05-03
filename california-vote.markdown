@@ -46,6 +46,9 @@ Click here for [**EdSource.org**](https://edsource.org/) April 2018 reports:
 **Videos**:
 
 **Indivisible's** "[**What if Everyone Voted**](https://www.facebook.com/indivisibleguide/videos/1919213654757888/UzpfSTcwNzY0NjAxMjczOTcyMTo5NzI0MDM4OTI5MzA1OTc/)?" 
+
+From [Jason Kander](https://en.wikipedia.org/wiki/Jason_Kander)'s **[Let America Vote**](https://www.letamericavote.org/) :https://www.youtube.com/watch?time_continue=79&v=Co6rrktzDq4
+https://en.wikipedia.org/wiki/Jason_Kander
   
 [**Tom Steyer's "Tom Steyer Pledges $1 Million to Register Teenagers to Vote in 2018"**](https://secondnexus.com/news/tom-steyer-teenagers-voter-registration/) 
 
