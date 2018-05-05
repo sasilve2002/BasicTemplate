@@ -3,13 +3,13 @@ title: California Vote!
 date: 2018-03-21 14:49:00 -07:00
 ---
 
-[**Click here to register to vote.**](https://registertovote.ca.gov/)
+[**Cli**c**k here to register to vote.**](https://registertovote.ca.gov/)
 
 ##################################################################
 
 ***Youth Voters***:
 
-Click here for [18by18.vote](https://www.18by18.vote/) 
+**Click here for** [**18by18.vote**](https://www.18by18.vote/) : "If 18 and 19-year-olds voted at the same rate as other Americans, we’d have over 1.5 million additional voters in the next presidential election, and more than 750,000 additional voters in off-year elections."
 
 [Click here for **Cap, Gown, Vote!**](https://capgownvote.org/about)
  
