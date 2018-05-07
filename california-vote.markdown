@@ -5,7 +5,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 [**Cli**c**k here to register to vote.**](https://registertovote.ca.gov/)
 
-[Click here, and then scroll down, for Alameda County's new "One-time vote-by-mail application](https://www.acvote.org/index)." 
+[Click here, and then scroll down, for Alameda County's new "**One-time vote-by-mail application**](https://www.acvote.org/index)." 
 
 ##################################################################
 
