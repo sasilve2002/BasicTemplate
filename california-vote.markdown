@@ -11,7 +11,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 ***Youth Voters***:
 
-[**ALAMEDA COUNTY OFFICE OF EDUCATION**](https://www.acoe.org/Domain/4)
+* [**ALAMEDA COUNTY OFFICE OF EDUCATION**](https://www.acoe.org/Domain/4)
 [**L. Karen Monroe, Superintendent**](https://www.acoe.org/page/133)
 [**Click here for Resources for Students**](https://www.acoe.org/domain/150) 
 
