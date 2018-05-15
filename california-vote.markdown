@@ -11,7 +11,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 ***Youth Voters***:
 
-[Click here for](https://m.facebook.com/story.php?story_fbid=2015453245152822&id=908009612563863&refsrc=https%3A%2F%2Fm.facebook.com%2FNowThisPolitics%2Fvideos%2F2015453245152822%2F&_rdr) [Now This Politics](https://en.wikipedia.org/wiki/NowThis_News) video 
+***Confused about mid-term elections?***  [**Click here for a video**](https://m.facebook.com/story.php?story_fbid=2015453245152822&id=908009612563863&refsrc=https%3A%2F%2Fm.facebook.com%2FNowThisPolitics%2Fvideos%2F2015453245152822%2F&_rdr) from [**Now This Politics**](https://www.facebook.com/NowThisPolitics/) .
 
 **Click here for** [**18by18.vote**](https://www.18by18.vote/) : "If 18 and 19-year-olds voted at the same rate as other Americans, we’d have over 1.5 million additional voters in the next presidential election, and more than 750,000 additional voters in off-year elections."
 
