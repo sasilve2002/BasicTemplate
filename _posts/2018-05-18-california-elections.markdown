@@ -14,4 +14,4 @@ Excerpted from [Rock the Vote](https://www.rockthevote.org/) :
 **Voter Registration Deadline** - **Online by Mon May 21, 2018**
 - **Postmarked by Mon May 21, 2018**
 
-For an encyclopedia of **election information**, click on  "**California Vote!**" at the top of this page.
+*For an encyclopedia of **election information**, click on  "**California Vote!**" at the top of this page.*
