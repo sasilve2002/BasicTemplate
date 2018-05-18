@@ -7,4 +7,4 @@ Excerpted from [Rock the Vote](https://www.rockthevote.org/) :
 
 [**Click here for *important dates and deadlines* for California elections.**](https://www.rockthevote.org/voting-information/california/)
 
-For an encyclopedia of **election information**, click on  "**California Vote**" at the top of this page.
+For an encyclopedia of **election information**, click on  "**California Vote!**" at the top of this page.
