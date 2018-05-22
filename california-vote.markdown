@@ -23,7 +23,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 [Click here for **Cap, Gown, Vote!**](https://capgownvote.org/about)
 [Click here for **Cap, Gown, Vote! video**](https://www.youtube.com/watch?v=8jzq4a1dGtY).
-https://www.youtube.com/watch?v=Co6rrktzDq4&feature=youtu.be
+[Click here for "Youth Voting" video.](https://www.youtube.com/watch?v=Co6rrktzDq4&feature=youtu.be)
  
 "In **Spring 2018**, **Let America Vote is launching Cap, Gown, Vote!** in cities across the country in partnership with Mayors. Cap, Gown, Vote! is an initiative aimed at increasing voter registration among high school students."
 
