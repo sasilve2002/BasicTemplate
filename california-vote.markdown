@@ -22,6 +22,7 @@ date: 2018-03-21 14:49:00 -07:00
 **Click here for** [**18by18.vote**](https://www.18by18.vote/) : "If 18 and 19-year-olds voted at the same rate as other Americans, we’d have over 1.5 million additional voters in the next presidential election, and more than 750,000 additional voters in off-year elections."
 
 [Click here for **Cap, Gown, Vote!**](https://capgownvote.org/about)
+[Click here for Cap, Gown, Vote! video](https://www.youtube.com/watch?v=8jzq4a1dGtY).
  
 "In **Spring 2018**, **Let America Vote is launching Cap, Gown, Vote!** in cities across the country in partnership with Mayors. Cap, Gown, Vote! is an initiative aimed at increasing voter registration among high school students."
 
