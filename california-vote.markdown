@@ -11,10 +11,6 @@ date: 2018-03-21 14:49:00 -07:00
 
 ***Youth Voters***:
 
-[**Project Vote**](http://www.projectvote.org/) :
-[***Click here for***](https://funderscommittee.org/files/high_school_voter_registration_programs.pdf) "Engaging America’s Youth through High School Voter Registration Programs"
-
-
 [***ALAMEDA COUNTY OFFICE OF EDUCATION***](https://www.acoe.org/Domain/4) **--** 
 [**L. Karen Monroe, Superintendent**](https://www.acoe.org/page/133) **--** 
 [**Click here for Resources for Students**](https://www.acoe.org/domain/150)
@@ -47,6 +43,10 @@ Click here for [**EdSource.org**](https://edsource.org/) April 2018 reports:
 [Click here for **poll workers** information](http://www.sos.ca.gov/elections/poll-worker-information/).
 
 [Click here for **Indivisible East Bay's High School Voter Registration Initiative**](https://docs.google.com/document/d/1D2kZatoRjeeX7-BBCLAKHAXXfWgnBnTt0FNV1AyoQts/edit)
+
+
+*Facts & Survey* from [**Project Vote**](http://www.projectvote.org/) :
+[***Click here for***](https://funderscommittee.org/files/high_school_voter_registration_programs.pdf) "Engaging America’s Youth through High School Voter Registration Programs"
 
 **Videos**:
 
