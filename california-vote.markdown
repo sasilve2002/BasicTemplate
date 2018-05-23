@@ -20,7 +20,7 @@ date: 2018-03-21 14:49:00 -07:00
 [**Click here for Resources for Students**](https://www.acoe.org/domain/150)
 [Click here for "Alameda County Civic Learning Partnership."](https://www.mydigitalchalkboard.org/portal/default/Group/Viewer/GroupView?action=2&gid=6100) 
 
-Click here for [**Project Vote**](http://www.projectvote.org/)'s *[Engaging America’s Youth through High School Voter Registration Programs](https://funderscommittee.org/files/high_school_voter_registration_programs.pdf)*
+Click here for [**Project Vote**](http://www.projectvote.org/)'s "[Engaging America’s Youth through High School Voter Registration Programs](https://funderscommittee.org/files/high_school_voter_registration_programs.pdf)"
 
 **Click here for** [**18by18.vote**](https://www.18by18.vote/) : "If 18 and 19-year-olds voted at the same rate as other Americans, we’d have over 1.5 million additional voters in the next presidential election, and more than 750,000 additional voters in off-year elections."
 
