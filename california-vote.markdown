@@ -11,6 +11,8 @@ date: 2018-03-21 14:49:00 -07:00
 
 ***Youth Voters***:
 
+[Click here for the "joint letter"](http://elections.cdn.sos.ca.gov//outreach/pdf/joint-letter.pdf) from the Calfornia Secretary of State and the California Superintendent of Public Instruction : 
+
 [***ALAMEDA COUNTY OFFICE OF EDUCATION***](https://www.acoe.org/Domain/4) **--** 
 [**L. Karen Monroe, Superintendent**](https://www.acoe.org/page/133) **--** 
 [**Click here for Resources for Students**](https://www.acoe.org/domain/150)
