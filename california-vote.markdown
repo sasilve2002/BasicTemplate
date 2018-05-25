@@ -11,7 +11,7 @@ date: 2018-03-21 14:49:00 -07:00
 
 ***Youth Voters***:
 
-[Click here for the **"joint letter"**](http://elections.cdn.sos.ca.gov//outreach/pdf/joint-letter.pdf) from the [Calfornia Secretary of State](http://www.sos.ca.gov/) and the [California Superintendent of Public Instruction ](https://www.cde.ca.gov/eo/): 
+[Click here for the **"joint letter"**](http://elections.cdn.sos.ca.gov//outreach/pdf/joint-letter.pdf) from the [Calfornia Secretary of State](http://www.sos.ca.gov/) and the [California Superintendent of Public Instruction ](https://www.cde.ca.gov/eo/): "....*we strongly your school to observe High School Voter Registration Weeks .... to put your students on the path to a lifetime of civic engagement and voting*."
 
 [***ALAMEDA COUNTY OFFICE OF EDUCATION***](https://www.acoe.org/Domain/4) **--** 
 [**L. Karen Monroe, Superintendent**](https://www.acoe.org/page/133) **--** 
