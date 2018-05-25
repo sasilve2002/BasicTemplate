@@ -52,7 +52,7 @@ Click here for [**EdSource.org**](https://edsource.org/) April 2018 reports:
 
 ***Confused about mid-term elections?***  [**Click here for a video**](https://m.facebook.com/story.php?story_fbid=2015453245152822&id=908009612563863&refsrc=https%3A%2F%2Fm.facebook.com%2FNowThisPolitics%2Fvideos%2F2015453245152822%2F&_rdr) from [**Now This Politics**](https://www.facebook.com/NowThisPolitics/) .
 
-Click here for [18by18.org "Why We Vote" video.](https://www.18by18.vote/)
+Click here for [18by18.org **"Why We Vote"** video.](https://www.18by18.vote/)
 
 **Civic Learning in California & Power of Democracy**
 [***Click here for their video***](https://www.youtube.com/watch?v=bxFLmlH0wsI).
