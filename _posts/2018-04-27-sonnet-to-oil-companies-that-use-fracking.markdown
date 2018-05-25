@@ -40,6 +40,6 @@ How dare you to commit this travesty?
 One day, all life on Earth could cease to be.
 
 
-**By Anna Dabney
+By **Anna Dabney**
 
-April 27, 2018**
+April 27, 2018
