@@ -18,8 +18,8 @@ date: 2018-03-21 14:49:00 -07:00
 [**Click here for Resources for Students**](https://www.acoe.org/domain/150)
 [Click here for "Alameda County Civic Learning Partnership."](https://www.mydigitalchalkboard.org/portal/default/Group/Viewer/GroupView?action=2&gid=6100)
 
-[**HeadCount**](http://info.headcount.org/signup) is a non-partisan organization that works with **musicians** to promote participation in democracy.
-[Click here to sign up to **register voters at schools**.](http://info.headcount.org/signup)  
+[**HeadCount**](http://info.headcount.org/signup) '...is a non-partisan organization that works with **musicians** to promote participation in democracy."    
+[High school students: click here to sign up to **register voters at your school**.](http://info.headcount.org/signup)  
 
 **Click here for** [**18by18.vote**](https://www.18by18.vote/) : "If 18 and 19-year-olds voted at the same rate as other Americans, we’d have over 1.5 million additional voters in the next presidential election, and more than 750,000 additional voters in off-year elections."
 
